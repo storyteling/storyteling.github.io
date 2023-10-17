@@ -18,9 +18,9 @@
 ##############################
 text_skin: default # "orange" (default), "dark", "forest", "ocean", "chocolate", "orange"
 highlight_theme: default # "default" (default), "tomorrow", "tomorrow-night", "tomorrow-night-eighties", "tomorrow-night-blue", "tomorrow-night-bright"
-url     : https://linestart.github.io # the base hostname & protocol for your site e.g. https://www.someone.com
+url     : https://narse.github.io # the base hostname & protocol for your site e.g. https://www.someone.com
 baseurl : # does not include hostname
-title   : 특가 상품 모음
+title   : 이 가격 놓치면 손해
 description: > # this means to ignore newlines until "Language & timezone"
   특가 상품 안내사이트
 
