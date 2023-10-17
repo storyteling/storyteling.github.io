@@ -1,0 +1,3 @@
+User-agent: *
+Allow: /
+Sitemap: https://linestart.github.io/sitemap.xml
