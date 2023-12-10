@@ -37,7 +37,8 @@ CD는 최대 80분 분량의 음악을 저장할 수 있습니다. 따라서, �
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>71,200원</span>
-- 리뷰수: 1461  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6400820937&traceid=V0-153&itemId=13684351426&vendorItemId=80936041461)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6400820937&traceid=V0-153&itemId=13684351426&vendorItemId=80936041461)
 
 ---
 
@@ -54,7 +55,8 @@ CD는 최대 80분 분량의 음악을 저장할 수 있습니다. 따라서, �
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>59,800원</span>
-- 리뷰수: 1461  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7246197613&traceid=V0-153&itemId=18422102540&vendorItemId=3229411797)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7246197613&traceid=V0-153&itemId=18422102540&vendorItemId=3229411797)
 
 ---
 
@@ -71,7 +73,8 @@ CD는 최대 80분 분량의 음악을 저장할 수 있습니다. 따라서, �
 
 - 할인율과 원래가격: 16%  15,500   원
 - 가격: <span style='color:red'>49,800원</span>
-- 리뷰수: 26  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=63315952&traceid=V0-153&itemId=215655513&vendorItemId=3519371126)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=63315952&traceid=V0-153&itemId=215655513&vendorItemId=3519371126)
 
 ---
 
@@ -88,7 +91,8 @@ CD는 최대 80분 분량의 음악을 저장할 수 있습니다. 따라서, �
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>58,000원</span>
-- 리뷰수: 2658  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6132927898&traceid=V0-153&itemId=11707998235&vendorItemId=73584479760)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6132927898&traceid=V0-153&itemId=11707998235&vendorItemId=73584479760)
 
 ---
 
@@ -105,7 +109,8 @@ CD는 최대 80분 분량의 음악을 저장할 수 있습니다. 따라서, �
 
 - 할인율과 원래가격: 17%  13,900   원
 - 가격: <span style='color:red'>69,800원</span>
-- 리뷰수: 12  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6354987613&traceid=V0-153&itemId=13389119421&vendorItemId=80643962727)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6354987613&traceid=V0-153&itemId=13389119421&vendorItemId=80643962727)
 
 ---
 
@@ -122,7 +127,8 @@ CD는 최대 80분 분량의 음악을 저장할 수 있습니다. 따라서, �
 
 - 할인율과 원래가격: 61%  22,900   원
 - 가격: <span style='color:red'>97,000원</span>
-- 리뷰수: 3  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7199014327&traceid=V0-153&itemId=18192490586&vendorItemId=85341212920)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7199014327&traceid=V0-153&itemId=18192490586&vendorItemId=85341212920)
 
 ---
 
@@ -139,7 +145,8 @@ CD는 최대 80분 분량의 음악을 저장할 수 있습니다. 따라서, �
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>43,150원</span>
-- 리뷰수: 1461  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1861682869&traceid=V0-153&itemId=3164665070&vendorItemId=71152209918)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1861682869&traceid=V0-153&itemId=3164665070&vendorItemId=71152209918)
 
 ---
 
@@ -156,7 +163,8 @@ CD는 최대 80분 분량의 음악을 저장할 수 있습니다. 따라서, �
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>40,900원</span>
-- 리뷰수: 1461  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7053184286&traceid=V0-153&itemId=19586213645&vendorItemId=86763515805)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7053184286&traceid=V0-153&itemId=19586213645&vendorItemId=86763515805)
 
 ---
 
@@ -173,7 +181,8 @@ CD는 최대 80분 분량의 음악을 저장할 수 있습니다. 따라서, �
 
 - 할인율과 원래가격: 16%  15,500   원
 - 가격: <span style='color:red'>23,500원</span>
-- 리뷰수: 26  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6348114774&traceid=V0-153&itemId=13346699741&vendorItemId=86295855666)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6348114774&traceid=V0-153&itemId=13346699741&vendorItemId=86295855666)
 
 ---
 
@@ -190,7 +199,8 @@ CD는 최대 80분 분량의 음악을 저장할 수 있습니다. 따라서, �
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>92,900원</span>
-- 리뷰수: 2658  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6629156107&traceid=V0-153&itemId=15106127536&vendorItemId=82328055199)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6629156107&traceid=V0-153&itemId=15106127536&vendorItemId=82328055199)
 
 ---
 **CD플레이어 구매 시 주의점**

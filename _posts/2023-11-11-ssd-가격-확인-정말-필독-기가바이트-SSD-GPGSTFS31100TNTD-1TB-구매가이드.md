@@ -43,7 +43,8 @@ SSD는 HDD에 비해 저전력 소모를 합니다. HDD는 회전하는 디스�
 
 - 할인율과 원래가격: 쿠폰할인가 29%  329,000   원
 - 가격: <span style='color:red'>69,500원</span>
-- 리뷰수: 16214  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=9127701173&vendorItemId=76413743812)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=9127701173&vendorItemId=76413743812)
 
 ---
 
@@ -60,7 +61,8 @@ SSD는 HDD에 비해 저전력 소모를 합니다. HDD는 회전하는 디스�
 
 - 할인율과 원래가격: 쿠폰할인가 18%  329,000   원
 - 가격: <span style='color:red'>204,900원</span>
-- 리뷰수: 4409  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=11271673984&vendorItemId=78548572310)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=11271673984&vendorItemId=78548572310)
 
 ---
 
@@ -77,7 +79,8 @@ SSD는 HDD에 비해 저전력 소모를 합니다. HDD는 회전하는 디스�
 
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: <span style='color:red'>113,000원</span>
-- 리뷰수: 890  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
 
 ---
 
@@ -94,7 +97,8 @@ SSD는 HDD에 비해 저전력 소모를 합니다. HDD는 회전하는 디스�
 
 - 할인율과 원래가격: 20%  369,000   원
 - 가격: <span style='color:red'>63,250원</span>
-- 리뷰수: 4409  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
 
 ---
 
@@ -111,7 +115,8 @@ SSD는 HDD에 비해 저전력 소모를 합니다. HDD는 회전하는 디스�
 
 - 할인율과 원래가격: 즉시할인가 70%  198,000   원
 - 가격: <span style='color:red'>26,220원</span>
-- 리뷰수: 708  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=63171192&traceid=V0-153&itemId=215197459&vendorItemId=3518019431)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=63171192&traceid=V0-153&itemId=215197459&vendorItemId=3518019431)
 
 ---
 
@@ -128,7 +133,8 @@ SSD는 HDD에 비해 저전력 소모를 합니다. HDD는 회전하는 디스�
 
 - 할인율과 원래가격: 쿠폰할인가 32%  62,900   원
 - 가격: <span style='color:red'>99,000원</span>
-- 리뷰수: 21  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1925951860&traceid=V0-153&itemId=3269541376&vendorItemId=71256563036)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1925951860&traceid=V0-153&itemId=3269541376&vendorItemId=71256563036)
 
 ---
 
@@ -145,7 +151,8 @@ SSD는 HDD에 비해 저전력 소모를 합니다. HDD는 회전하는 디스�
 
 - 할인율과 원래가격: 쿠폰할인가 29%  329,000   원
 - 가격: <span style='color:red'>86,000원</span>
-- 리뷰수: 16214  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=78780713475)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=78780713475)
 
 ---
 
@@ -162,7 +169,8 @@ SSD는 HDD에 비해 저전력 소모를 합니다. HDD는 회전하는 디스�
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>55,500원</span>
-- 리뷰수: 4409  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=104047591&traceid=V0-153&itemId=19281675499&vendorItemId=76736776641)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=104047591&traceid=V0-153&itemId=19281675499&vendorItemId=76736776641)
 
 ---
 
@@ -179,7 +187,8 @@ SSD는 HDD에 비해 저전력 소모를 합니다. HDD는 회전하는 디스�
 
 - 할인율과 원래가격: 즉시할인가 72%  199,000   원
 - 가격: <span style='color:red'>27,900원</span>
-- 리뷰수: 1350  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7287487281&traceid=V0-153&itemId=18618702914&vendorItemId=85910786977)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7287487281&traceid=V0-153&itemId=18618702914&vendorItemId=85910786977)
 
 ---
 
@@ -196,7 +205,8 @@ SSD는 HDD에 비해 저전력 소모를 합니다. HDD는 회전하는 디스�
 
 - 할인율과 원래가격: 20%  429,000   원
 - 가격: <span style='color:red'>77,000원</span>
-- 리뷰수: 4409  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7589272024&traceid=V0-153&itemId=20051573613&vendorItemId=87708892796)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7589272024&traceid=V0-153&itemId=20051573613&vendorItemId=87708892796)
 
 ---
 **SSD 구매시 주의점**

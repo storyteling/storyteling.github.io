@@ -35,7 +35,8 @@ pin: true
 
 - 할인율과 원래가격: 40%  29,800   원
 - 가격: <span style='color:red'>50,000원</span>
-- 리뷰수: 21  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946773&traceid=V0-153&itemId=None&vendorItemId=None)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946773&traceid=V0-153&itemId=None&vendorItemId=None)
 
 ---
 
@@ -52,7 +53,8 @@ pin: true
 
 - 할인율과 원래가격: 쿠폰할인가 48%  32,900   원
 - 가격: <span style='color:red'>30,000원</span>
-- 리뷰수: 2034  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946751&traceid=V0-153&itemId=None&vendorItemId=None)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946751&traceid=V0-153&itemId=None&vendorItemId=None)
 
 ---
 
@@ -69,7 +71,8 @@ pin: true
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>10,000원</span>
-- 리뷰수: 119  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946782&traceid=V0-153&itemId=None&vendorItemId=None)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946782&traceid=V0-153&itemId=None&vendorItemId=None)
 
 ---
 
@@ -86,7 +89,8 @@ pin: true
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>3,000원</span>
-- 리뷰수: 1846  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946779&traceid=V0-153&itemId=None&vendorItemId=None)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946779&traceid=V0-153&itemId=None&vendorItemId=None)
 
 ---
 
@@ -103,7 +107,8 @@ pin: true
 
 - 할인율과 원래가격: 30%  35,900   원
 - 가격: <span style='color:red'>5,000원</span>
-- 리뷰수: 81  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946778&traceid=V0-153&itemId=None&vendorItemId=None)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946778&traceid=V0-153&itemId=None&vendorItemId=None)
 
 ---
 
@@ -120,7 +125,8 @@ pin: true
 
 - 할인율과 원래가격: 2%  78,000   원
 - 가격: <span style='color:red'>3,000원</span>
-- 리뷰수: 0  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000010001297&traceid=V0-153&itemId=None&vendorItemId=None)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000010001297&traceid=V0-153&itemId=None&vendorItemId=None)
 
 ---
 
@@ -137,7 +143,8 @@ pin: true
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>68,400원</span>
-- 리뷰수: 37  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7713174076&traceid=V0-153&itemId=20681203100&vendorItemId=87954612527)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7713174076&traceid=V0-153&itemId=20681203100&vendorItemId=87954612527)
 
 ---
 
@@ -154,7 +161,8 @@ pin: true
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>41,000원</span>
-- 리뷰수: 135  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7433167879&traceid=V0-153&itemId=19310537880&vendorItemId=87099338408)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7433167879&traceid=V0-153&itemId=19310537880&vendorItemId=87099338408)
 
 ---
 
@@ -171,7 +179,8 @@ pin: true
 
 - 할인율과 원래가격: 33%  14,900   원
 - 가격: <span style='color:red'>159,000원</span>
-- 리뷰수: 61  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7753144098&traceid=V0-153&itemId=20888935796&vendorItemId=87956070175)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7753144098&traceid=V0-153&itemId=20888935796&vendorItemId=87956070175)
 
 ---
 
@@ -188,7 +197,8 @@ pin: true
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>64,160원</span>
-- 리뷰수: 1375  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7578833253&traceid=V0-153&itemId=20002256994&vendorItemId=87099338432)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7578833253&traceid=V0-153&itemId=20002256994&vendorItemId=87099338432)
 
 ---
 **플레이스테이션 기프트카드 구매시 주의점**

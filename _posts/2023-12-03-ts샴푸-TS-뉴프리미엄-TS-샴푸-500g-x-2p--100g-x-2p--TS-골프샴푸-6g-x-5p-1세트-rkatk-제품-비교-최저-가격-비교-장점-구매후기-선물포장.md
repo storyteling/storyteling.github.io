@@ -43,7 +43,8 @@ TS샴푸는 합성 계면활성제, 실리콘, 인공 향료 등 걱정 성분 1
 
 - 할인율과 원래가격: 17%  59,900   원
 - 가격: <span style='color:red'>38,200원</span>
-- 리뷰수: 387  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5423800638&traceid=V0-153&itemId=8198038897&vendorItemId=85927644255)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5423800638&traceid=V0-153&itemId=8198038897&vendorItemId=85927644255)
 
 ---
 
@@ -60,7 +61,8 @@ TS샴푸는 합성 계면활성제, 실리콘, 인공 향료 등 걱정 성분 1
 
 - 할인율과 원래가격: 20%  59,900   원
 - 가격: <span style='color:red'>47,840원</span>
-- 리뷰수: 90  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7122286149&traceid=V0-153&itemId=18396917845&vendorItemId=85539837618)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7122286149&traceid=V0-153&itemId=18396917845&vendorItemId=85539837618)
 
 ---
 
@@ -77,7 +79,8 @@ TS샴푸는 합성 계면활성제, 실리콘, 인공 향료 등 걱정 성분 1
 
 - 할인율과 원래가격: 17%  59,900   원
 - 가격: <span style='color:red'>38,200원</span>
-- 리뷰수: 387  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5423800638&traceid=V0-153&itemId=8198038897&vendorItemId=85927644255)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5423800638&traceid=V0-153&itemId=8198038897&vendorItemId=85927644255)
 
 ---
 
@@ -94,7 +97,8 @@ TS샴푸는 합성 계면활성제, 실리콘, 인공 향료 등 걱정 성분 1
 
 - 할인율과 원래가격: 70%  45,000   원
 - 가격: <span style='color:red'>19,180원</span>
-- 리뷰수: 1401  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7619553428&traceid=V0-153&itemId=20198218320&vendorItemId=70358475686)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7619553428&traceid=V0-153&itemId=20198218320&vendorItemId=70358475686)
 
 ---
 
@@ -111,7 +115,8 @@ TS샴푸는 합성 계면활성제, 실리콘, 인공 향료 등 걱정 성분 1
 
 - 할인율과 원래가격: 43%  48,000   원
 - 가격: <span style='color:red'>24,640원</span>
-- 리뷰수: 587  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7122286149&traceid=V0-153&itemId=18196778846&vendorItemId=85330887449)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7122286149&traceid=V0-153&itemId=18196778846&vendorItemId=85330887449)
 
 ---
 
@@ -128,7 +133,8 @@ TS샴푸는 합성 계면활성제, 실리콘, 인공 향료 등 걱정 성분 1
 
 - 할인율과 원래가격: 32%  45,000   원
 - 가격: <span style='color:red'>33,930원</span>
-- 리뷰수: 106  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5654329460&traceid=V0-153&itemId=9262376319&vendorItemId=85949264839)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5654329460&traceid=V0-153&itemId=9262376319&vendorItemId=85949264839)
 
 ---
 
@@ -145,7 +151,8 @@ TS샴푸는 합성 계면활성제, 실리콘, 인공 향료 등 걱정 성분 1
 
 - 할인율과 원래가격: 23%  12,900   원
 - 가격: <span style='color:red'>34,240원</span>
-- 리뷰수: 2445  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7619553428&traceid=V0-153&itemId=20198235977&vendorItemId=85296875666)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7619553428&traceid=V0-153&itemId=20198235977&vendorItemId=85296875666)
 
 ---
 
@@ -162,7 +169,8 @@ TS샴푸는 합성 계면활성제, 실리콘, 인공 향료 등 걱정 성분 1
 
 - 할인율과 원래가격: 83%  120,000   원
 - 가격: <span style='color:red'>29,660원</span>
-- 리뷰수: 2445  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6590298130&traceid=V0-153&itemId=17489242919&vendorItemId=87791808081)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6590298130&traceid=V0-153&itemId=17489242919&vendorItemId=87791808081)
 
 ---
 
@@ -179,7 +187,8 @@ TS샴푸는 합성 계면활성제, 실리콘, 인공 향료 등 걱정 성분 1
 
 - 할인율과 원래가격: 71%  73,000   원
 - 가격: <span style='color:red'>47,840원</span>
-- 리뷰수: 79  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7122286149&traceid=V0-153&itemId=18396917845&vendorItemId=85539837618)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7122286149&traceid=V0-153&itemId=18396917845&vendorItemId=85539837618)
 
 ---
 
@@ -196,7 +205,8 @@ TS샴푸는 합성 계면활성제, 실리콘, 인공 향료 등 걱정 성분 1
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>35,900원</span>
-- 리뷰수: 21  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6533852113&traceid=V0-153&itemId=14522065426&vendorItemId=87112584871)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6533852113&traceid=V0-153&itemId=14522065426&vendorItemId=87112584871)
 
 ---
 **<h2>TS샴푸 구매 시 주의점</h2>**
