@@ -35,7 +35,7 @@ SSD는 HDD에 비해 저전력 소모를 합니다. HDD는 회전하는 디스�
 
 ## 1. 기가바이트 SSD, GP-GSTFS31100TNTD, 1TB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/xbp3faej/4261d7606c7048ce9e483311733336ca.png)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/xbp3faej/4261d7606c7048ce9e483311733336ca.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=9127701173&vendorItemId=76413743812)
 
 
 👍 [기가바이트 SSD, GP-GSTFS31100TNTD, 1TB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=9127701173&vendorItemId=76413743812) 👌 
@@ -53,7 +53,7 @@ SSD는 HDD에 비해 저전력 소모를 합니다. HDD는 회전하는 디스�
 
 ## 2. 씨게이트 One Touch 데이터복구 외장하드 + 파우치, 5TB, 스페이스그레이
 
-![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1050416116708788-8447b6ae-d625-403a-8182-360754ee157e.jpg)
+[![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1050416116708788-8447b6ae-d625-403a-8182-360754ee157e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=11271673984&vendorItemId=78548572310)
 
 
 👍 [씨게이트 One Touch 데이터복구 외장하드 + 파우치, 5TB, 스페이스그레이 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=11271673984&vendorItemId=78548572310) 👌 
@@ -71,7 +71,7 @@ SSD는 HDD에 비해 저전력 소모를 합니다. HDD는 회전하는 디스�
 
 ## 3. SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457) 👌 
@@ -89,7 +89,7 @@ SSD는 HDD에 비해 저전력 소모를 합니다. HDD는 회전하는 디스�
 
 ## 4. SK하이닉스 GOLD P31 NVMe SSD, HFS500GDE9X0733, 500GB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5547319295952285-5c3f4fa7-5879-4260-bfd7-683749b6d4b4.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5547319295952285-5c3f4fa7-5879-4260-bfd7-683749b6d4b4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS500GDE9X0733, 500GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470) 👌 
@@ -107,7 +107,7 @@ SSD는 HDD에 비해 저전력 소모를 합니다. HDD는 회전하는 디스�
 
 ## 5. 타이탄 프로 SSD TITAN 128XP, 128GB
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2018/01/29/11/0/81d22799-f303-48be-b412-ed0e5d01b9c6.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2018/01/29/11/0/81d22799-f303-48be-b412-ed0e5d01b9c6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=63171192&traceid=V0-153&itemId=215197459&vendorItemId=3518019431)
 
 
 👍 [타이탄 프로 SSD TITAN 128XP, 128GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=63171192&traceid=V0-153&itemId=215197459&vendorItemId=3518019431) 👌 
@@ -125,7 +125,7 @@ SSD는 HDD에 비해 저전력 소모를 합니다. HDD는 회전하는 디스�
 
 ## 6. 에이데이타 외장하드 HV320 2TB, 블루
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3506935589679716-2249c90d-000d-41a0-aa22-6e494e4125c4.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3506935589679716-2249c90d-000d-41a0-aa22-6e494e4125c4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1925951860&traceid=V0-153&itemId=3269541376&vendorItemId=71256563036)
 
 
 👍 [에이데이타 외장하드 HV320 2TB, 블루 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1925951860&traceid=V0-153&itemId=3269541376&vendorItemId=71256563036) 👌 
@@ -143,7 +143,7 @@ SSD는 HDD에 비해 저전력 소모를 합니다. HDD는 회전하는 디스�
 
 ## 7. 샌디스크 Portable SSD E30, 1TB, 블랙
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d8c4/0e0734d208ea2ceb17a5e269dbdf8826e11c72fca04a75629c7ab6e1c09a.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d8c4/0e0734d208ea2ceb17a5e269dbdf8826e11c72fca04a75629c7ab6e1c09a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=78780713475)
 
 
 👍 [샌디스크 Portable SSD E30, 1TB, 블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=78780713475) 👌 
@@ -161,7 +161,7 @@ SSD는 HDD에 비해 저전력 소모를 합니다. HDD는 회전하는 디스�
 
 ## 8. 마이크론 Crucial SSD, MX500, 500GB
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d47b/30eed425d1021df581e7c58cde64d592bdc757325cf2637360c10a8e2d67.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d47b/30eed425d1021df581e7c58cde64d592bdc757325cf2637360c10a8e2d67.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=104047591&traceid=V0-153&itemId=19281675499&vendorItemId=76736776641)
 
 
 👍 [마이크론 Crucial SSD, MX500, 500GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=104047591&traceid=V0-153&itemId=19281675499&vendorItemId=76736776641) 👌 
@@ -179,7 +179,7 @@ SSD는 HDD에 비해 저전력 소모를 합니다. HDD는 회전하는 디스�
 
 ## 9. Kcwen 핸드폰 외장메모리 OTG 아이폰 USB 메모리 3in1, 32GB
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/dbe8/9f8b1f619306089a6a6e954f9518e63d36eef41e23629e55154a9e8672d8.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/dbe8/9f8b1f619306089a6a6e954f9518e63d36eef41e23629e55154a9e8672d8.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7287487281&traceid=V0-153&itemId=18618702914&vendorItemId=85910786977)
 
 
 👍 [Kcwen 핸드폰 외장메모리 OTG 아이폰 USB 메모리 3in1, 32GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7287487281&traceid=V0-153&itemId=18618702914&vendorItemId=85910786977) 👌 
@@ -197,7 +197,7 @@ SSD는 HDD에 비해 저전력 소모를 합니다. HDD는 회전하는 디스�
 
 ## 10. 삼성전자 870 EVO 500GB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/dc69/f0858c029c06c5e1bef23c2c1ed39de800ed307c2dba23235edde7282d93.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/dc69/f0858c029c06c5e1bef23c2c1ed39de800ed307c2dba23235edde7282d93.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7589272024&traceid=V0-153&itemId=20051573613&vendorItemId=87708892796)
 
 
 👍 [삼성전자 870 EVO 500GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7589272024&traceid=V0-153&itemId=20051573613&vendorItemId=87708892796) 👌 

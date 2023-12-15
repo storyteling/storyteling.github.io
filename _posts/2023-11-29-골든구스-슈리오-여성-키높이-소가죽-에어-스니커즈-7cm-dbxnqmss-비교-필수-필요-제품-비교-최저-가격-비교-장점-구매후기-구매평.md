@@ -40,7 +40,7 @@ pin: true
 
 ## 1. 슈리오 여성 키높이 소가죽 에어 스니커즈 7cm
 
-![골든구스 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/59bf/d5dc72d2d11080c156806476b63bf181c5c0264a4ac2e28b50b5464d2d76.jpg)
+[![골든구스 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/59bf/d5dc72d2d11080c156806476b63bf181c5c0264a4ac2e28b50b5464d2d76.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6976695277&traceid=V0-153&itemId=19144287157&vendorItemId=86076942156)
 
 
 👍 [슈리오 여성 키높이 소가죽 에어 스니커즈 7cm <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6976695277&traceid=V0-153&itemId=19144287157&vendorItemId=86076942156) 👌 
@@ -58,7 +58,7 @@ pin: true
 
 ## 2. 골든구스 [골든구스] 21FW 슈퍼스타 스니커즈 (GYF00102_F002020_81294_1_21F)
 
-![골든구스 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/70df/a7a4656fdf18651df9e7b502927f4e9daf772ac7277a3bfbfd1195992903.jpg)
+[![골든구스 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/70df/a7a4656fdf18651df9e7b502927f4e9daf772ac7277a3bfbfd1195992903.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6075522988&traceid=V0-153&itemId=11236347476&vendorItemId=78558800290)
 
 
 👍 [골든구스 [골든구스] 21FW 슈퍼스타 스니커즈 (GYF00102_F002020_81294_1_21F) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6075522988&traceid=V0-153&itemId=11236347476&vendorItemId=78558800290) 👌 
@@ -76,7 +76,7 @@ pin: true
 
 ## 3. [골든구즈] [골든구스] 23FW 슈퍼스타 스니커즈 (GWF00101 F004787 823
 
-![골든구스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/aded/13e76f94f7c50e181bcaa5d8edd771bb913146db57c8c86dc7b5b495e098.jpg)
+[![골든구스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/aded/13e76f94f7c50e181bcaa5d8edd771bb913146db57c8c86dc7b5b495e098.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7655916644&traceid=V0-153&itemId=20382878720&vendorItemId=87466674586)
 
 
 👍 [[골든구즈] [골든구스] 23FW 슈퍼스타 스니커즈 (GWF00101 F004787 823 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7655916644&traceid=V0-153&itemId=20382878720&vendorItemId=87466674586) 👌 
@@ -94,7 +94,7 @@ pin: true
 
 ## 4. [골든구즈] 골든구스 남성 슈퍼스타 스니커즈 실버 GMF00101-F004168-70261
 
-![골든구스 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/8c8e/21e6bfdcf7d083dbff61dfb7eb323a23542303b3bc81de41a6b3897d87b4.jpg)
+[![골든구스 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/8c8e/21e6bfdcf7d083dbff61dfb7eb323a23542303b3bc81de41a6b3897d87b4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7372511500&traceid=V0-153&itemId=19021429203&vendorItemId=86145799358)
 
 
 👍 [[골든구즈] 골든구스 남성 슈퍼스타 스니커즈 실버 GMF00101-F004168-70261 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7372511500&traceid=V0-153&itemId=19021429203&vendorItemId=86145799358) 👌 
@@ -112,7 +112,7 @@ pin: true
 
 ## 5. !! 특급 파격세일 찬스 찬스 찬스 BEST 나를 위한 편안함 *당일발송* 여성 미드컷 방한화 NEW 발 볼편한 풍성한 보아털 사용하여 보온력 강화 편하게 으세요 딱맞아편한신발
 
-![골든구스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/8e2e/29cf07097d231a12ef0fa7b3982abeef4b684bb57395e6385e3d6d511ba8.jpg)
+[![골든구스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/8e2e/29cf07097d231a12ef0fa7b3982abeef4b684bb57395e6385e3d6d511ba8.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7653970699&traceid=V0-153&itemId=20373372267&vendorItemId=87456575377)
 
 
 👍 [!! 특급 파격세일 찬스 찬스 찬스 BEST 나를 위한 편안함 *당일발송* 여성 미드컷 방한화 NEW 발 볼편한 풍성한 보아털 사용하여 보온력 강화 편하게 으세요 딱맞아편한신발 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7653970699&traceid=V0-153&itemId=20373372267&vendorItemId=87456575377) 👌 
@@ -130,7 +130,7 @@ pin: true
 
 ## 6. 슈리오 여성 키높이 소가죽 에어 스니커즈 7cm
 
-![골든구스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b392/16a6316c909ba311ea6662cba37b4b2d85d15b7293d380993801bf0d2779.jpg)
+[![골든구스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b392/16a6316c909ba311ea6662cba37b4b2d85d15b7293d380993801bf0d2779.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6976695277&traceid=V0-153&itemId=19144287186&vendorItemId=86076942093)
 
 
 👍 [슈리오 여성 키높이 소가죽 에어 스니커즈 7cm <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6976695277&traceid=V0-153&itemId=19144287186&vendorItemId=86076942093) 👌 
@@ -148,7 +148,7 @@ pin: true
 
 ## 7. 골든구스 가격인하 16FW 슈퍼스타 스니커즈 (GCOKS301_P2_16F)
 
-![골든구스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/fb6b/3d80330029fd6b53cda7fb229c3621c19c06d35ced89bff2814b5d8c1852.jpg)
+[![골든구스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/fb6b/3d80330029fd6b53cda7fb229c3621c19c06d35ced89bff2814b5d8c1852.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=183867803&traceid=V0-153&itemId=526519872&vendorItemId=78137805758)
 
 
 👍 [골든구스 가격인하 16FW 슈퍼스타 스니커즈 (GCOKS301_P2_16F) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=183867803&traceid=V0-153&itemId=526519872&vendorItemId=78137805758) 👌 
@@ -166,7 +166,7 @@ pin: true
 
 ## 8. [골든구즈] [로로모다] 골든구스 슈퍼스타 여성 스니커즈 /GYF00101-F000312-
 
-![골든구스 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4087/d4e093fe3374ac0c0978678f7192f8a94f922fcc27576e5af5adc687e576.jpg)
+[![골든구스 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/4087/d4e093fe3374ac0c0978678f7192f8a94f922fcc27576e5af5adc687e576.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621044961&traceid=V0-153&itemId=20205403947&vendorItemId=87295749965)
 
 
 👍 [[골든구즈] [로로모다] 골든구스 슈퍼스타 여성 스니커즈 /GYF00101-F000312- <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621044961&traceid=V0-153&itemId=20205403947&vendorItemId=87295749965) 👌 
@@ -184,7 +184,7 @@ pin: true
 
 ## 9. 국내생산 수제화 독일군스니커즈/커플/남여공용 GP스니커즈
 
-![골든구스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ea64/13c6cfdfdbc8a14ba2f7336cddcae428f9e0bdc34f1c052d2f47e92b42b3.jpg)
+[![골든구스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ea64/13c6cfdfdbc8a14ba2f7336cddcae428f9e0bdc34f1c052d2f47e92b42b3.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6602457019&traceid=V0-153&itemId=14940120106&vendorItemId=82165189516)
 
 
 👍 [국내생산 수제화 독일군스니커즈/커플/남여공용 GP스니커즈 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6602457019&traceid=V0-153&itemId=14940120106&vendorItemId=82165189516) 👌 
@@ -202,7 +202,7 @@ pin: true
 
 ## 10. 골든구스 [명품]페드로 남성 슈퍼스타 로우탑 스니커즈 GMF0010..
 
-![골든구스 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/441d/b73c46ba818cae5b6b634bd7da3f5e50104ad29554b9c6b6dda53d3da7cb.jpg)
+[![골든구스 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/441d/b73c46ba818cae5b6b634bd7da3f5e50104ad29554b9c6b6dda53d3da7cb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7593495965&traceid=V0-153&itemId=20070979038&vendorItemId=87232611388)
 
 
 👍 [골든구스 [명품]페드로 남성 슈퍼스타 로우탑 스니커즈 GMF0010.. <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7593495965&traceid=V0-153&itemId=20070979038&vendorItemId=87232611388) 👌 

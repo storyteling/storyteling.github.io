@@ -34,7 +34,7 @@ pin: true
 
 ## 1. 리치모리 넉넉한 수납 토트백 Business 노트북 백팩 남자백팩 남성백팩
 
-![남자백팩 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2a8e/7981ae767178e298aae93776d7e9f92392be4e0c85b58bcbdc50e583567e.jpg)
+[![남자백팩 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2a8e/7981ae767178e298aae93776d7e9f92392be4e0c85b58bcbdc50e583567e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7558243208&traceid=V0-153&itemId=19906852034&vendorItemId=86983449830)
 
 
 👍 [리치모리 넉넉한 수납 토트백 Business 노트북 백팩 남자백팩 남성백팩 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7558243208&traceid=V0-153&itemId=19906852034&vendorItemId=86983449830) 👌 
@@ -52,7 +52,7 @@ pin: true
 
 ## 2. 애드에딧 모르딕 백팩 + 키링
 
-![남자백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/13127573029058572-909fef71-ebc7-4234-9493-a70736ab27bf.jpg)
+[![남자백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/13127573029058572-909fef71-ebc7-4234-9493-a70736ab27bf.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5876810289&traceid=V0-153&itemId=10297413871&vendorItemId=70005414885)
 
 
 👍 [애드에딧 모르딕 백팩 + 키링 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5876810289&traceid=V0-153&itemId=10297413871&vendorItemId=70005414885) 👌 
@@ -70,7 +70,7 @@ pin: true
 
 ## 3. 아메리칸투어리스터 MILTON2 백팩
 
-![남자백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2021/05/25/11/2/d1140af4-cf6b-4796-9938-59ac1f48162e.jpg)
+[![남자백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2021/05/25/11/2/d1140af4-cf6b-4796-9938-59ac1f48162e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5567158543&traceid=V0-153&itemId=8852872916&vendorItemId=76139966448)
 
 
 👍 [아메리칸투어리스터 MILTON2 백팩 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5567158543&traceid=V0-153&itemId=8852872916&vendorItemId=76139966448) 👌 
@@ -88,7 +88,7 @@ pin: true
 
 ## 4. 벤쿠쿠 캐주얼 초경량 백팩 MP58
 
-![남자백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/46c5/c0cb6db96f3ed14cf1ac7cb0d45f9e418423a09570a72284e821f879ff70.jpg)
+[![남자백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/46c5/c0cb6db96f3ed14cf1ac7cb0d45f9e418423a09570a72284e821f879ff70.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5580712472&traceid=V0-153&itemId=8917672333&vendorItemId=76204275269)
 
 
 👍 [벤쿠쿠 캐주얼 초경량 백팩 MP58 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5580712472&traceid=V0-153&itemId=8917672333&vendorItemId=76204275269) 👌 
@@ -106,7 +106,7 @@ pin: true
 
 ## 5. 아미성 남녀공용 캐쥬얼 백팩
 
-![남자백팩 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e25a/8495e4425c221f2230151c2750c4d1325d558ee95bec5b241f0b161299a0.jpg)
+[![남자백팩 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e25a/8495e4425c221f2230151c2750c4d1325d558ee95bec5b241f0b161299a0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7099896552&traceid=V0-153&itemId=17719479647&vendorItemId=84884364157)
 
 
 👍 [아미성 남녀공용 캐쥬얼 백팩 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7099896552&traceid=V0-153&itemId=17719479647&vendorItemId=84884364157) 👌 
@@ -124,7 +124,7 @@ pin: true
 
 ## 6. [맨백] 회사원 백팩 남자 출장용 노트북 가방 ATH365A
 
-![남자백팩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0510/7f03cd17e7bd0f24228a5bc40693757ecc9a20b0079555bbe95fd3ea8166.jpg)
+[![남자백팩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0510/7f03cd17e7bd0f24228a5bc40693757ecc9a20b0079555bbe95fd3ea8166.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5091370606&traceid=V0-153&itemId=6923108337&vendorItemId=83129209940)
 
 
 👍 [[맨백] 회사원 백팩 남자 출장용 노트북 가방 ATH365A <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5091370606&traceid=V0-153&itemId=6923108337&vendorItemId=83129209940) 👌 
@@ -142,7 +142,7 @@ pin: true
 
 ## 7. 남자 비즈니스 여행용 백팩 대용량 직장인 출장용 노트북 가방
 
-![남자백팩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2dca/3cb9b9ad8c859ccca049e0ca148ed6780034ea754d450141252811c244cf.jpg)
+[![남자백팩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/2dca/3cb9b9ad8c859ccca049e0ca148ed6780034ea754d450141252811c244cf.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6299603180&traceid=V0-153&itemId=13018914740&vendorItemId=80281954379)
 
 
 👍 [남자 비즈니스 여행용 백팩 대용량 직장인 출장용 노트북 가방 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6299603180&traceid=V0-153&itemId=13018914740&vendorItemId=80281954379) 👌 
@@ -160,7 +160,7 @@ pin: true
 
 ## 8. BANGE 여행용 남자 백팩 확장형 직장인 대학생 대용량 가방 BG-2005
 
-![남자백팩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9a54/a506cbc234f06c808527c85e10a18e29b7e902c491af92cada5e26f6df90.jpg)
+[![남자백팩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9a54/a506cbc234f06c808527c85e10a18e29b7e902c491af92cada5e26f6df90.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7506896461&traceid=V0-153&itemId=19662149119&vendorItemId=87297157198)
 
 
 👍 [BANGE 여행용 남자 백팩 확장형 직장인 대학생 대용량 가방 BG-2005 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7506896461&traceid=V0-153&itemId=19662149119&vendorItemId=87297157198) 👌 
@@ -178,7 +178,7 @@ pin: true
 
 ## 9. 바닐라문 비즈니스 노트북 백팩
 
-![남자백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4778084681248439-3142735f-bdef-4f6e-a79e-3f6c66b19bba.jpg)
+[![남자백팩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4778084681248439-3142735f-bdef-4f6e-a79e-3f6c66b19bba.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6669593463&traceid=V0-153&itemId=15032059830&vendorItemId=82254679097)
 
 
 👍 [바닐라문 비즈니스 노트북 백팩 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6669593463&traceid=V0-153&itemId=15032059830&vendorItemId=82254679097) 👌 
@@ -196,7 +196,7 @@ pin: true
 
 ## 10. 쌤소나이트레드 HARAM 백팩
 
-![남자백팩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/56149634747594-fca524ad-27f2-4864-a45b-662e8c777857.jpg)
+[![남자백팩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/56149634747594-fca524ad-27f2-4864-a45b-662e8c777857.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1224214237&traceid=V0-153&itemId=2215790736&vendorItemId=72797889961)
 
 
 👍 [쌤소나이트레드 HARAM 백팩 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1224214237&traceid=V0-153&itemId=2215790736&vendorItemId=72797889961) 👌 

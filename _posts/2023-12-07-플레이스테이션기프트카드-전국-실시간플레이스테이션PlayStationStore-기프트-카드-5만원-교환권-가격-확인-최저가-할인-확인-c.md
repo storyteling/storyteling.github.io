@@ -27,7 +27,7 @@ pin: true
 
 ## 1. [전국] [실시간][플레이스테이션]PlayStation™Store 기프트 카드 5만원 교환권
 
-![플레이스테이션기프트카드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00129467/99b28cf1-fe13-4648-b9c4-2939e52ea485.jpg)
+[![플레이스테이션기프트카드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00129467/99b28cf1-fe13-4648-b9c4-2939e52ea485.jpg)](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946773&traceid=V0-153&itemId=None&vendorItemId=None)
 
 
 👍 [[전국] [실시간][플레이스테이션]PlayStation™Store 기프트 카드 5만원 교환권 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946773&traceid=V0-153&itemId=None&vendorItemId=None) 👌 
@@ -45,7 +45,7 @@ pin: true
 
 ## 2. [전국] [실시간][플레이스테이션]PlayStation™Store 기프트 카드 3만원 교환권
 
-![플레이스테이션기프트카드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00129467/ecc25bb9-884f-43b1-8933-8de4f072fd68.jpg)
+[![플레이스테이션기프트카드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00129467/ecc25bb9-884f-43b1-8933-8de4f072fd68.jpg)](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946751&traceid=V0-153&itemId=None&vendorItemId=None)
 
 
 👍 [[전국] [실시간][플레이스테이션]PlayStation™Store 기프트 카드 3만원 교환권 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946751&traceid=V0-153&itemId=None&vendorItemId=None) 👌 
@@ -63,7 +63,7 @@ pin: true
 
 ## 3. [전국] [실시간][플레이스테이션]PlayStation™Store 기프트 카드 1만원 교환권
 
-![플레이스테이션기프트카드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00129467/5d76063e-5bbd-4829-96fa-f063073b20b1.jpg)
+[![플레이스테이션기프트카드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00129467/5d76063e-5bbd-4829-96fa-f063073b20b1.jpg)](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946782&traceid=V0-153&itemId=None&vendorItemId=None)
 
 
 👍 [[전국] [실시간][플레이스테이션]PlayStation™Store 기프트 카드 1만원 교환권 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946782&traceid=V0-153&itemId=None&vendorItemId=None) 👌 
@@ -81,7 +81,7 @@ pin: true
 
 ## 4. [전국] [실시간][플레이스테이션]PlayStation™Store 기프트 카드 3천원 교환권
 
-![플레이스테이션기프트카드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00129467/eb55aca8-0f0f-402f-8f37-45b3fbb911b8.jpg)
+[![플레이스테이션기프트카드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00129467/eb55aca8-0f0f-402f-8f37-45b3fbb911b8.jpg)](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946779&traceid=V0-153&itemId=None&vendorItemId=None)
 
 
 👍 [[전국] [실시간][플레이스테이션]PlayStation™Store 기프트 카드 3천원 교환권 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946779&traceid=V0-153&itemId=None&vendorItemId=None) 👌 
@@ -99,7 +99,7 @@ pin: true
 
 ## 5. [전국] [실시간][플레이스테이션]PlayStation™Store 기프트 카드 5천원 교환권
 
-![플레이스테이션기프트카드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00129467/bf7937f4-9aa3-4c66-8725-ea4ec552dc7d.jpg)
+[![플레이스테이션기프트카드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00129467/bf7937f4-9aa3-4c66-8725-ea4ec552dc7d.jpg)](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946778&traceid=V0-153&itemId=None&vendorItemId=None)
 
 
 👍 [[전국] [실시간][플레이스테이션]PlayStation™Store 기프트 카드 5천원 교환권 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000000946778&traceid=V0-153&itemId=None&vendorItemId=None) 👌 
@@ -117,7 +117,7 @@ pin: true
 
 ## 6. [전국] [실시간 e쿠폰] 플레이스테이션스토어카드 금액권 외
 
-![플레이스테이션기프트카드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00186952/3e96b7af-e6c4-4e76-94ca-0509a2f3c21d.png)
+[![플레이스테이션기프트카드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/travel_reactor/travelSeller/common/A00186952/3e96b7af-e6c4-4e76-94ca-0509a2f3c21d.png)](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000010001297&traceid=V0-153&itemId=None&vendorItemId=None)
 
 
 👍 [[전국] [실시간 e쿠폰] 플레이스테이션스토어카드 금액권 외 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFTDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10000010001297&traceid=V0-153&itemId=None&vendorItemId=None) 👌 
@@ -135,7 +135,7 @@ pin: true
 
 ## 7. 10 - 플레이스테이션 스토어 기프트 카드 디지털 코드, $100 코드
 
-![플레이스테이션기프트카드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3bef/0bcc73248b7b1d2380ab2ba5f5b38402ecb0a1bba443d320aaa7abf402aa.jpg)
+[![플레이스테이션기프트카드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3bef/0bcc73248b7b1d2380ab2ba5f5b38402ecb0a1bba443d320aaa7abf402aa.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7713174076&traceid=V0-153&itemId=20681203100&vendorItemId=87954612527)
 
 
 👍 [10 - 플레이스테이션 스토어 기프트 카드 디지털 코드, $100 코드 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7713174076&traceid=V0-153&itemId=20681203100&vendorItemId=87954612527) 👌 
@@ -153,7 +153,7 @@ pin: true
 
 ## 8. $50 PlayStation Store 기프트 카드 [디지털 코드], 01.$10 코드
 
-![플레이스테이션기프트카드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e1ee/e49fb91c5f678352be12d93cc658862ff41201f90f3490d0f109d40ef8ab.jpg)
+[![플레이스테이션기프트카드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e1ee/e49fb91c5f678352be12d93cc658862ff41201f90f3490d0f109d40ef8ab.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7433167879&traceid=V0-153&itemId=19310537880&vendorItemId=87099338408)
 
 
 👍 [$50 PlayStation Store 기프트 카드 [디지털 코드], 01.$10 코드 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7433167879&traceid=V0-153&itemId=19310537880&vendorItemId=87099338408) 👌 
@@ -171,7 +171,7 @@ pin: true
 
 ## 9. Sony PlayStation 기프트 카드, 75_Traditional
 
-![플레이스테이션기프트카드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f606/342b32af05eea770fa5963b569149fd1e01343025359e2cfae8e421903b7.jpg)
+[![플레이스테이션기프트카드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f606/342b32af05eea770fa5963b569149fd1e01343025359e2cfae8e421903b7.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7753144098&traceid=V0-153&itemId=20888935796&vendorItemId=87956070175)
 
 
 👍 [Sony PlayStation 기프트 카드, 75_Traditional <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7753144098&traceid=V0-153&itemId=20888935796&vendorItemId=87956070175) 👌 
@@ -189,7 +189,7 @@ pin: true
 
 ## 10. $50 PlayStation Store 기프트 카드 [디지털 코드], $25 Code
 
-![플레이스테이션기프트카드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/acdb/b174decd01832e0630765ff0d3be613dd5c098e91dd921aab51675af17fb.jpg)
+[![플레이스테이션기프트카드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/acdb/b174decd01832e0630765ff0d3be613dd5c098e91dd921aab51675af17fb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7578833253&traceid=V0-153&itemId=20002256994&vendorItemId=87099338432)
 
 
 👍 [$50 PlayStation Store 기프트 카드 [디지털 코드], $25 Code <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7578833253&traceid=V0-153&itemId=20002256994&vendorItemId=87099338432) 👌 

@@ -27,7 +27,7 @@ pin: true
 
 ## 1. 로캣 벌칸2 맥스 Vulcan II Max 게이밍 키보드 White (적축/한글 자판), 화이트
 
-![기계식키보드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7365/19837a5e65f4f81a71f04fe159d9cd25b9238f3588cd2a0e7a1225563b83.jpg)
+[![기계식키보드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7365/19837a5e65f4f81a71f04fe159d9cd25b9238f3588cd2a0e7a1225563b83.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7450595172&traceid=V0-153&itemId=19395574388&vendorItemId=86264564066)
 
 
 👍 [로캣 벌칸2 맥스 Vulcan II Max 게이밍 키보드 White (적축/한글 자판), 화이트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7450595172&traceid=V0-153&itemId=19395574388&vendorItemId=86264564066) 👌 
@@ -45,7 +45,7 @@ pin: true
 
 ## 2. 앱코 축교환 레인보우 무빙 LED 기계식 키보드 갈축, 블랙, K560, 일반형
 
-![기계식키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3127150761816530-286ead59-0ecb-4bfc-a6c2-809d26d78dfc.jpg)
+[![기계식키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3127150761816530-286ead59-0ecb-4bfc-a6c2-809d26d78dfc.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5065639069&traceid=V0-153&itemId=6846651326&vendorItemId=74139260510)
 
 
 👍 [앱코 축교환 레인보우 무빙 LED 기계식 키보드 갈축, 블랙, K560, 일반형 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5065639069&traceid=V0-153&itemId=6846651326&vendorItemId=74139260510) 👌 
@@ -63,7 +63,7 @@ pin: true
 
 ## 3. COX 기계식 게이밍 키보드 적축, 그레이 + 화이트, CK01 TKL, 텐키리스
 
-![기계식키보드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/bwzrjelu/7db253d545754bedabeac0ec88facd58.jpg)
+[![기계식키보드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/bwzrjelu/7db253d545754bedabeac0ec88facd58.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7104115416&traceid=V0-153&itemId=17741234309&vendorItemId=84905862545)
 
 
 👍 [COX 기계식 게이밍 키보드 적축, 그레이 + 화이트, CK01 TKL, 텐키리스 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7104115416&traceid=V0-153&itemId=17741234309&vendorItemId=84905862545) 👌 
@@ -81,7 +81,7 @@ pin: true
 
 ## 4. 앱코 K517 레트로 기계식 게이밍 유선키보드 갈축, 일반형, 레트로 베이지
 
-![기계식키보드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/05/18/17/8/2a767fea-34cb-44b5-9f44-99c43fca0311.jpg)
+[![기계식키보드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/05/18/17/8/2a767fea-34cb-44b5-9f44-99c43fca0311.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7343002878&traceid=V0-153&itemId=18877974990&vendorItemId=86006516699)
 
 
 👍 [앱코 K517 레트로 기계식 게이밍 유선키보드 갈축, 일반형, 레트로 베이지 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7343002878&traceid=V0-153&itemId=18877974990&vendorItemId=86006516699) 👌 
@@ -99,7 +99,7 @@ pin: true
 
 ## 5. NUPHY Halo65 무선 유선 블루투스 기계식 키보드 로즈 글래이셔 축 사무용 게임용, 인체공학, 아이오닉 화이트(로즈 글래이셔 축)
 
-![기계식키보드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/068f/ac664dd140bbeb6a6a858c7c707814f72c1107e80a486e6511ac7eb3d2d9.jpg)
+[![기계식키보드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/068f/ac664dd140bbeb6a6a858c7c707814f72c1107e80a486e6511ac7eb3d2d9.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7384995279&traceid=V0-153&itemId=19080931920&vendorItemId=86203304118)
 
 
 👍 [NUPHY Halo65 무선 유선 블루투스 기계식 키보드 로즈 글래이셔 축 사무용 게임용, 인체공학, 아이오닉 화이트(로즈 글래이셔 축) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7384995279&traceid=V0-153&itemId=19080931920&vendorItemId=86203304118) 👌 
@@ -117,7 +117,7 @@ pin: true
 
 ## 6. LOFREE 로프리 키보드 레트로 기계식키보드 무선 블루투스 98키, OE918, 그레이, 레트로 그레이 키보드 + 마우스(세트)
 
-![기계식키보드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2de9/9c6bab175563a1b8e46ee6e87a4c72cf786652398f0a95e475d4fb61935b.jpg)
+[![기계식키보드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2de9/9c6bab175563a1b8e46ee6e87a4c72cf786652398f0a95e475d4fb61935b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7573606366&traceid=V0-153&itemId=19978452499&vendorItemId=87737312172)
 
 
 👍 [LOFREE 로프리 키보드 레트로 기계식키보드 무선 블루투스 98키, OE918, 그레이, 레트로 그레이 키보드 + 마우스(세트) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7573606366&traceid=V0-153&itemId=19978452499&vendorItemId=87737312172) 👌 
@@ -135,7 +135,7 @@ pin: true
 
 ## 7. doxx 2024 기계식 키보드 적축 청축 갈축 led 게이밍 스위치 교체타입 무한 동시 입력, 독스-GK50(갈축)
 
-![기계식키보드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c628/9ca04d0fc08ab2849b94569a2873873826c93cd0069de467df3f40ef905f.jpg)
+[![기계식키보드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c628/9ca04d0fc08ab2849b94569a2873873826c93cd0069de467df3f40ef905f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692588682&traceid=V0-153&itemId=20575148823&vendorItemId=87650402070)
 
 
 👍 [doxx 2024 기계식 키보드 적축 청축 갈축 led 게이밍 스위치 교체타입 무한 동시 입력, 독스-GK50(갈축) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692588682&traceid=V0-153&itemId=20575148823&vendorItemId=87650402070) 👌 
@@ -153,7 +153,7 @@ pin: true
 
 ## 8. COX 기계식 게이밍 키보드 갈축, 그레이 + 화이트, CK01 TKL, 텐키리스
 
-![기계식키보드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/bwzrjelu/7db253d545754bedabeac0ec88facd58.jpg)
+[![기계식키보드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/bwzrjelu/7db253d545754bedabeac0ec88facd58.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7104115412&traceid=V0-153&itemId=17741234289&vendorItemId=84905862540)
 
 
 👍 [COX 기계식 게이밍 키보드 갈축, 그레이 + 화이트, CK01 TKL, 텐키리스 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7104115412&traceid=V0-153&itemId=17741234289&vendorItemId=84905862540) 👌 
@@ -171,7 +171,7 @@ pin: true
 
 ## 9. NUPHY Halo65 무선 유선 블루투스 기계식 키보드 베이비 캥거루 축 사무용 게임용, 아이오닉 화이트(베이비 캥거루 축)
 
-![기계식키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1789/34681e94004a7d9bbeaeba965d0a80a8a64b7ebe5a06cddc5eb4a560b7e6.jpg)
+[![기계식키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1789/34681e94004a7d9bbeaeba965d0a80a8a64b7ebe5a06cddc5eb4a560b7e6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7385024086&traceid=V0-153&itemId=19081071959&vendorItemId=86203441616)
 
 
 👍 [NUPHY Halo65 무선 유선 블루투스 기계식 키보드 베이비 캥거루 축 사무용 게임용, 아이오닉 화이트(베이비 캥거루 축) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7385024086&traceid=V0-153&itemId=19081071959&vendorItemId=86203441616) 👌 
@@ -189,7 +189,7 @@ pin: true
 
 ## 10. 앱코 HACKER K516 축교환 측면 RGB 라이팅 이중사출 게이밍 기계식 키보드 청축, ABKO HACKER K516, 레드, 일반형
 
-![기계식키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/862358957957994-b0fad182-f764-41f5-b255-f455d348793d.jpg)
+[![기계식키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/862358957957994-b0fad182-f764-41f5-b255-f455d348793d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=310171394&traceid=V0-153&itemId=955704675&vendorItemId=5353106140)
 
 
 👍 [앱코 HACKER K516 축교환 측면 RGB 라이팅 이중사출 게이밍 기계식 키보드 청축, ABKO HACKER K516, 레드, 일반형 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=310171394&traceid=V0-153&itemId=955704675&vendorItemId=5353106140) 👌 

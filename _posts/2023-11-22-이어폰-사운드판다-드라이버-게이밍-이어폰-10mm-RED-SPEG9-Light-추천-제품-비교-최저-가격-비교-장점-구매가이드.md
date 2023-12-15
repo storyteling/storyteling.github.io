@@ -22,7 +22,7 @@ pin: true
 
 ## 1. 사운드판다 드라이버 게이밍 이어폰 10mm, RED, SPE-G9 Light
 
-![이어폰 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1925070996096539-986e0639-cba8-4e82-80f6-7a6194757b27.jpg)
+[![이어폰 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1925070996096539-986e0639-cba8-4e82-80f6-7a6194757b27.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6052981742&traceid=V0-153&itemId=11099282802&vendorItemId=82253898852)
 
 
 👍 [사운드판다 드라이버 게이밍 이어폰 10mm, RED, SPE-G9 Light <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6052981742&traceid=V0-153&itemId=11099282802&vendorItemId=82253898852) 👌 
@@ -40,7 +40,7 @@ pin: true
 
 ## 2. 블라우풍트 AAC ENC 노이즈 캔슬링 오픈형 블루투스 이어폰, BLP-BE362K, 블랙
 
-![이어폰 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/11/13/17/3/cb3365b1-caf0-451c-8bb3-6382e15f5d61.jpg)
+[![이어폰 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/11/13/17/3/cb3365b1-caf0-451c-8bb3-6382e15f5d61.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7714597360&traceid=V0-153&itemId=20688198860&vendorItemId=87759876664)
 
 
 👍 [블라우풍트 AAC ENC 노이즈 캔슬링 오픈형 블루투스 이어폰, BLP-BE362K, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7714597360&traceid=V0-153&itemId=20688198860&vendorItemId=87759876664) 👌 
@@ -58,7 +58,7 @@ pin: true
 
 ## 3. Apple 정품 라이트닝 이어팟, 옵션선택
 
-![이어폰 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/product/image/vendoritem/2019/03/20/3414367705/a6fa268d-ffc1-499a-9b16-9b0c6416eba5.jpg)
+[![이어폰 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/product/image/vendoritem/2019/03/20/3414367705/a6fa268d-ffc1-499a-9b16-9b0c6416eba5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5001745972&traceid=V0-153&itemId=6686675109&vendorItemId=3414367705)
 
 
 👍 [Apple 정품 라이트닝 이어팟, 옵션선택 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5001745972&traceid=V0-153&itemId=6686675109&vendorItemId=3414367705) 👌 
@@ -76,7 +76,7 @@ pin: true
 
 ## 4. 원모어 피스톤 피트 인이어 이어폰, E1009, 스페이스그레이
 
-![이어폰 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/368369071501409-f03cd03f-e3d2-4795-a0e0-52e06ebf5452.jpg)
+[![이어폰 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/368369071501409-f03cd03f-e3d2-4795-a0e0-52e06ebf5452.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=12293897&traceid=V0-153&itemId=58250264&vendorItemId=86647649903)
 
 
 👍 [원모어 피스톤 피트 인이어 이어폰, E1009, 스페이스그레이 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=12293897&traceid=V0-153&itemId=58250264&vendorItemId=86647649903) 👌 
@@ -94,7 +94,7 @@ pin: true
 
 ## 5. 서가 스테레오 AUX 호환 이어폰, 화이트, SG-EA35M
 
-![이어폰 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/40401912459336-3c48bf48-6ac1-4cbf-99a9-1fb05d5d9a50.jpg)
+[![이어폰 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/40401912459336-3c48bf48-6ac1-4cbf-99a9-1fb05d5d9a50.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7510086806&traceid=V0-153&itemId=19676404106&vendorItemId=81555418460)
 
 
 👍 [서가 스테레오 AUX 호환 이어폰, 화이트, SG-EA35M <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7510086806&traceid=V0-153&itemId=19676404106&vendorItemId=81555418460) 👌 
@@ -112,7 +112,7 @@ pin: true
 
 ## 6. 아이리버 커널형 이어셋, 화이트, BHC-180
 
-![이어폰 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8500311947110586-80c290af-21dc-4eda-ab5b-5c78aace9f6b.jpg)
+[![이어폰 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8500311947110586-80c290af-21dc-4eda-ab5b-5c78aace9f6b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6939377042&traceid=V0-153&itemId=16821782951&vendorItemId=73547640019)
 
 
 👍 [아이리버 커널형 이어셋, 화이트, BHC-180 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6939377042&traceid=V0-153&itemId=16821782951&vendorItemId=73547640019) 👌 
@@ -130,7 +130,7 @@ pin: true
 
 ## 7. 아이리버 커널형 이어셋, 화이트, BHC-180
 
-![이어폰 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8500311947110586-80c290af-21dc-4eda-ab5b-5c78aace9f6b.jpg)
+[![이어폰 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8500311947110586-80c290af-21dc-4eda-ab5b-5c78aace9f6b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6939377042&traceid=V0-153&itemId=16821782951&vendorItemId=73547640019)
 
 
 👍 [아이리버 커널형 이어셋, 화이트, BHC-180 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6939377042&traceid=V0-153&itemId=16821782951&vendorItemId=73547640019) 👌 
@@ -148,7 +148,7 @@ pin: true
 
 ## 8. 삼성 갤럭시 AKG 정품 이어폰 유선 3.5mm S8 S9 S10 노트8 노트9 커널형 인이어 호환 사은품 MAGBRO 파우치 증정, EO-IG955
 
-![이어폰 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/37a6/43fd3d3bb4688816a8563c4feca6755c062dfbd0d997fb712634c0d7ce81.jpg)
+[![이어폰 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/37a6/43fd3d3bb4688816a8563c4feca6755c062dfbd0d997fb712634c0d7ce81.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7351390388&traceid=V0-153&itemId=18918343595&vendorItemId=83141141377)
 
 
 👍 [삼성 갤럭시 AKG 정품 이어폰 유선 3.5mm S8 S9 S10 노트8 노트9 커널형 인이어 호환 사은품 MAGBRO 파우치 증정, EO-IG955 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7351390388&traceid=V0-153&itemId=18918343595&vendorItemId=83141141377) 👌 
@@ -166,7 +166,7 @@ pin: true
 
 ## 9. 블라우풍트 AAC ENC 노이즈 캔슬링 블루투스 이어폰, BLP-BE331P(퍼플), 퍼플
 
-![이어폰 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c00e/c6b577b4c1c7ad8d9cf7f2edec72f990c1bc1fca4a2777fddd4f7552cc49.png)
+[![이어폰 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c00e/c6b577b4c1c7ad8d9cf7f2edec72f990c1bc1fca4a2777fddd4f7552cc49.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6577822503&traceid=V0-153&itemId=19886353861&vendorItemId=87075084531)
 
 
 👍 [블라우풍트 AAC ENC 노이즈 캔슬링 블루투스 이어폰, BLP-BE331P(퍼플), 퍼플 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6577822503&traceid=V0-153&itemId=19886353861&vendorItemId=87075084531) 👌 
@@ -184,7 +184,7 @@ pin: true
 
 ## 10. QCY 블루투스이어폰, 화이트, t13app
 
-![이어폰 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8488529899314438-79efdbc9-574a-476e-a78b-dd8fbaf34d20.jpg)
+[![이어폰 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8488529899314438-79efdbc9-574a-476e-a78b-dd8fbaf34d20.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6572373138&traceid=V0-153&itemId=14758141683&vendorItemId=78636438577)
 
 
 👍 [QCY 블루투스이어폰, 화이트, t13app <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6572373138&traceid=V0-153&itemId=14758141683&vendorItemId=78636438577) 👌 

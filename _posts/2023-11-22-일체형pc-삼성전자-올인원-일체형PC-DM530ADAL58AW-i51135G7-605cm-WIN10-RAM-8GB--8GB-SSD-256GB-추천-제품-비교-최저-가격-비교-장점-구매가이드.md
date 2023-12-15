@@ -37,7 +37,7 @@ pin: true
 
 ## 1. 삼성전자 올인원 일체형PC DM530ADA-L58AW (i5-1135G7 60.5cm), WIN10, RAM 8GB + 8GB, SSD 256GB
 
-![일체형pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b104/03a64e13daf30fbe8d83e115ed15a0a465dbd047a117eb51da405794d8f1.jpg)
+[![일체형pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b104/03a64e13daf30fbe8d83e115ed15a0a465dbd047a117eb51da405794d8f1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4919086292&traceid=V0-153&itemId=6391984571&vendorItemId=82108842732)
 
 
 👍 [삼성전자 올인원 일체형PC DM530ADA-L58AW (i5-1135G7 60.5cm), WIN10, RAM 8GB + 8GB, SSD 256GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4919086292&traceid=V0-153&itemId=6391984571&vendorItemId=82108842732) 👌 
@@ -55,7 +55,7 @@ pin: true
 
 ## 2. 삼성전자 올인원 일체형 PC 프로스트 화이트 DM530ADA-L25A (펜티엄골드 7505 60.5cm WIN11 Pro) 기업용 사무용 학습용, RAM 8GB + SSD 128GB
 
-![일체형pc TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0c1e/19d5fe44a79b7ad0fc541d4073b1d2f79ff6fcc204f00df52762a910fbd0.jpg)
+[![일체형pc TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0c1e/19d5fe44a79b7ad0fc541d4073b1d2f79ff6fcc204f00df52762a910fbd0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7632714438&traceid=V0-153&itemId=20340545874&vendorItemId=84605225901)
 
 
 👍 [삼성전자 올인원 일체형 PC 프로스트 화이트 DM530ADA-L25A (펜티엄골드 7505 60.5cm WIN11 Pro) 기업용 사무용 학습용, RAM 8GB + SSD 128GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7632714438&traceid=V0-153&itemId=20340545874&vendorItemId=84605225901) 👌 
@@ -73,7 +73,7 @@ pin: true
 
 ## 3. HP 일체형PC Shell White 27-cr0001KR (i5-1335U WIN11 Home NVMe 512GB DDR4 8GB 68.6cm), 기본형
 
-![일체형pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/09/26/16/5/2a6cc4f6-a7fb-4c33-b225-0dba862340de.jpg)
+[![일체형pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/09/26/16/5/2a6cc4f6-a7fb-4c33-b225-0dba862340de.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621702954&traceid=V0-153&itemId=20208633498&vendorItemId=87298797792)
 
 
 👍 [HP 일체형PC Shell White 27-cr0001KR (i5-1335U WIN11 Home NVMe 512GB DDR4 8GB 68.6cm), 기본형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621702954&traceid=V0-153&itemId=20208633498&vendorItemId=87298797792) 👌 
@@ -91,7 +91,7 @@ pin: true
 
 ## 4. HP ALL in One PC 24 Starry White HP 24-cb1030KR (i3-1215U WIN11 Home RAM 8GB NVMe 256GB), 기본형
 
-![일체형pc TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2022/09/06/12/6/cd30edbf-6518-4479-bf52-ec2cfcf9bec9.jpg)
+[![일체형pc TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2022/09/06/12/6/cd30edbf-6518-4479-bf52-ec2cfcf9bec9.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6758255114&traceid=V0-153&itemId=15830673869&vendorItemId=83042350819)
 
 
 👍 [HP ALL in One PC 24 Starry White HP 24-cb1030KR (i3-1215U WIN11 Home RAM 8GB NVMe 256GB), 기본형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6758255114&traceid=V0-153&itemId=15830673869&vendorItemId=83042350819) 👌 
@@ -109,7 +109,7 @@ pin: true
 
 ## 5. 삼성 일체형PC DM530ADA-L15AADG1 올인원PC 데스크탑 컴퓨터 사무용 정품Win11탑재 선없는 컴퓨터, 16GB+128GB+1TB
 
-![일체형pc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/dadc/0b998b7bc005d523ace458ca0d4b4866f0fa233bcbacf98248e65eb72ed5.jpg)
+[![일체형pc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/dadc/0b998b7bc005d523ace458ca0d4b4866f0fa233bcbacf98248e65eb72ed5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7308946109&traceid=V0-153&itemId=18719959803&vendorItemId=85731422167)
 
 
 👍 [삼성 일체형PC DM530ADA-L15AADG1 올인원PC 데스크탑 컴퓨터 사무용 정품Win11탑재 선없는 컴퓨터, 16GB+128GB+1TB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7308946109&traceid=V0-153&itemId=18719959803&vendorItemId=85731422167) 👌 
@@ -127,7 +127,7 @@ pin: true
 
 ## 6. [왕가PC]WGCP 윈도우11 탑재 데스크탑 3D게임용 배그 더파이널스 풀옵션 게이밍 조립컴퓨터 롤 오버워치2 로스트아크 국민옵션부터 풀옵션 조립PC, 01. 기본형, 게이밍 01
 
-![일체형pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1274/9254eaad00d3c7483afab5898d0f6bd09019881e223202041e6c81226591.jpg)
+[![일체형pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1274/9254eaad00d3c7483afab5898d0f6bd09019881e223202041e6c81226591.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6939767041&traceid=V0-153&itemId=16823859549&vendorItemId=84003930996)
 
 
 👍 [[왕가PC]WGCP 윈도우11 탑재 데스크탑 3D게임용 배그 더파이널스 풀옵션 게이밍 조립컴퓨터 롤 오버워치2 로스트아크 국민옵션부터 풀옵션 조립PC, 01. 기본형, 게이밍 01 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6939767041&traceid=V0-153&itemId=16823859549&vendorItemId=84003930996) 👌 
@@ -145,7 +145,7 @@ pin: true
 
 ## 7. 삼성전자 올인원 일체형 PC 프로스트 화이트 DM530ADA-L15AH (셀러론-6305 60.5cm WIN11 RAM 8GB SSD 128GB + HDD 1TB), WIN11, 8GB, 128GB SSD, 1TB HDD
 
-![일체형pc TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1138288577249027-0eef7e24-37f5-4c7d-aa4a-1547d33effe5.jpg)
+[![일체형pc TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1138288577249027-0eef7e24-37f5-4c7d-aa4a-1547d33effe5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6666789524&traceid=V0-153&itemId=15324699204&vendorItemId=82545021380)
 
 
 👍 [삼성전자 올인원 일체형 PC 프로스트 화이트 DM530ADA-L15AH (셀러론-6305 60.5cm WIN11 RAM 8GB SSD 128GB + HDD 1TB), WIN11, 8GB, 128GB SSD, 1TB HDD <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6666789524&traceid=V0-153&itemId=15324699204&vendorItemId=82545021380) 👌 
@@ -163,7 +163,7 @@ pin: true
 
 ## 8. HP 올인원 일체형 PC 스타리 화이트 24-df1099KR (i5-1135G7 60.5cm WIN11 Home RAM 8GB NVMe 512GB), 기본형
 
-![일체형pc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/05/11/17/1/0867a5fd-e241-4300-9004-414c9c1ede77.jpg)
+[![일체형pc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/05/11/17/1/0867a5fd-e241-4300-9004-414c9c1ede77.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7328006236&traceid=V0-153&itemId=18807767729&vendorItemId=85938378537)
 
 
 👍 [HP 올인원 일체형 PC 스타리 화이트 24-df1099KR (i5-1135G7 60.5cm WIN11 Home RAM 8GB NVMe 512GB), 기본형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7328006236&traceid=V0-153&itemId=18807767729&vendorItemId=85938378537) 👌 
@@ -181,7 +181,7 @@ pin: true
 
 ## 9. 컴집 게이밍 조립식 컴퓨터 본체 배틀그라운드 디아블로4 롤 오버워치2 전문가용 건축설계 오토캐드 조립 PC, 게임용9번
 
-![일체형pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9e4f/f354e6e5599c1f26f439edf81c21080fb6531fe056f6212f3119fcc313f7.jpg)
+[![일체형pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9e4f/f354e6e5599c1f26f439edf81c21080fb6531fe056f6212f3119fcc313f7.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6470469998&traceid=V0-153&itemId=14827560521&vendorItemId=86617408939)
 
 
 👍 [컴집 게이밍 조립식 컴퓨터 본체 배틀그라운드 디아블로4 롤 오버워치2 전문가용 건축설계 오토캐드 조립 PC, 게임용9번 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6470469998&traceid=V0-153&itemId=14827560521&vendorItemId=86617408939) 👌 
@@ -199,7 +199,7 @@ pin: true
 
 ## 10. HP 일체형PC Starry White HP 24-cb1050kr All-in-One (i5-1235U WIN11 Home DDR4 8GB NVMe 512GB ) + 무선키보드 + 무선마우스, HP All-in-One 24-cb1050kr, 기본형
 
-![일체형pc TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/04/19/10/4/4c99bf47-5591-4f8c-8a1b-40176eda5937.jpg)
+[![일체형pc TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/04/19/10/4/4c99bf47-5591-4f8c-8a1b-40176eda5937.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7278606691&traceid=V0-153&itemId=18578264554&vendorItemId=85715016336)
 
 
 👍 [HP 일체형PC Starry White HP 24-cb1050kr All-in-One (i5-1235U WIN11 Home DDR4 8GB NVMe 512GB ) + 무선키보드 + 무선마우스, HP All-in-One 24-cb1050kr, 기본형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7278606691&traceid=V0-153&itemId=18578264554&vendorItemId=85715016336) 👌 

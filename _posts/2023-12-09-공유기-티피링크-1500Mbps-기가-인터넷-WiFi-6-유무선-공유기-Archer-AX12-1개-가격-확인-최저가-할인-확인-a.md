@@ -26,7 +26,7 @@ pin: true
 
 ## 1. 티피링크 1500Mbps 기가 인터넷 WiFi 6 유무선 공유기, Archer AX12, 1개
 
-![공유기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/07/11/12/1/f6465e4d-c3ab-4e48-8a8a-2b6fb421f12e.jpg)
+[![공유기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/07/11/12/1/f6465e4d-c3ab-4e48-8a8a-2b6fb421f12e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7458015806&traceid=V0-153&itemId=19432769379&vendorItemId=86543981490)
 
 
 👍 [티피링크 1500Mbps 기가 인터넷 WiFi 6 유무선 공유기, Archer AX12, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7458015806&traceid=V0-153&itemId=19432769379&vendorItemId=86543981490) 👌 
@@ -45,7 +45,7 @@ pin: true
 
 ## 2. ipTIME 유무선공유기, A2004SE, 1개
 
-![공유기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b1ef/648a3727b921ba2d040e85def89210d34271b7d323e04698f3e027237888.jpg)
+[![공유기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b1ef/648a3727b921ba2d040e85def89210d34271b7d323e04698f3e027237888.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6128710&traceid=V0-153&itemId=15832327265&vendorItemId=82973427488)
 
 
 👍 [ipTIME 유무선공유기, A2004SE, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6128710&traceid=V0-153&itemId=15832327265&vendorItemId=82973427488) 👌 
@@ -64,7 +64,7 @@ pin: true
 
 ## 3. ipTIME 유무선 공유기, A604SE, 1개
 
-![공유기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/8ce2/31741b4cfba515b16152290aebe575c9424d86359665031996157a6b0e8a.jpg)
+[![공유기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/8ce2/31741b4cfba515b16152290aebe575c9424d86359665031996157a6b0e8a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6848341813&traceid=V0-153&itemId=16304905764&vendorItemId=83457680532)
 
 
 👍 [ipTIME 유무선 공유기, A604SE, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6848341813&traceid=V0-153&itemId=16304905764&vendorItemId=83457680532) 👌 
@@ -83,7 +83,7 @@ pin: true
 
 ## 4. ipTIME 유무선 공유기, N604E PLUS, 1개
 
-![공유기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1367493077090035-20c0ec68-8fa7-4188-9b2a-64e41bd3d33f.jpg)
+[![공유기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1367493077090035-20c0ec68-8fa7-4188-9b2a-64e41bd3d33f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7427856614&traceid=V0-153&itemId=19284790668&vendorItemId=4851606562)
 
 
 👍 [ipTIME 유무선 공유기, N604E PLUS, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7427856614&traceid=V0-153&itemId=19284790668&vendorItemId=4851606562) 👌 
@@ -102,7 +102,7 @@ pin: true
 
 ## 5. 티피링크 AC1200 무선 MU MIMO 기가비트 와이파이 공유기, Archer A6, 1개
 
-![공유기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/11/16/16/9/cfdbb242-1cf1-4397-b1f7-df5186d8c5af.jpg)
+[![공유기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/11/16/16/9/cfdbb242-1cf1-4397-b1f7-df5186d8c5af.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7721550752&traceid=V0-153&itemId=20724478541&vendorItemId=87795217511)
 
 
 👍 [티피링크 AC1200 무선 MU MIMO 기가비트 와이파이 공유기, Archer A6, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7721550752&traceid=V0-153&itemId=20724478541&vendorItemId=87795217511) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. 티피링크 트라이 밴드 기가비트 Wi-Fi 6E 공유기, Archer AXE75, 1개
 
-![공유기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/7821501553965537-dd38a2a4-0be6-4203-849b-89075193e5d8.jpg)
+[![공유기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/7821501553965537-dd38a2a4-0be6-4203-849b-89075193e5d8.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6423008858&traceid=V0-153&itemId=13827276963&vendorItemId=81077471908)
 
 
 👍 [티피링크 트라이 밴드 기가비트 Wi-Fi 6E 공유기, Archer AXE75, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6423008858&traceid=V0-153&itemId=13827276963&vendorItemId=81077471908) 👌 
@@ -140,7 +140,7 @@ pin: true
 
 ## 7. 티피링크 1500Mbps 기가 인터넷 WiFi 6 유무선 공유기, Archer AX12, 1개
 
-![공유기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/07/11/12/1/f6465e4d-c3ab-4e48-8a8a-2b6fb421f12e.jpg)
+[![공유기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/07/11/12/1/f6465e4d-c3ab-4e48-8a8a-2b6fb421f12e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7458015806&traceid=V0-153&itemId=19432769379&vendorItemId=86543981490)
 
 
 👍 [티피링크 1500Mbps 기가 인터넷 WiFi 6 유무선 공유기, Archer AX12, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7458015806&traceid=V0-153&itemId=19432769379&vendorItemId=86543981490) 👌 
@@ -159,7 +159,7 @@ pin: true
 
 ## 8. ipTIME N602E PLUS 유무선공유기
 
-![공유기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2355242939842086-7d9d7f9e-87ac-4e27-8cdd-e87387fe43b8.jpg)
+[![공유기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2355242939842086-7d9d7f9e-87ac-4e27-8cdd-e87387fe43b8.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1100640643&traceid=V0-153&itemId=12566831376&vendorItemId=5517287614)
 
 
 👍 [ipTIME N602E PLUS 유무선공유기 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1100640643&traceid=V0-153&itemId=12566831376&vendorItemId=5517287614) 👌 
@@ -178,7 +178,7 @@ pin: true
 
 ## 9. 티피링크 와이파이6 기가 8포트 듀얼밴드 게이밍 유무선공유기, Archer AX6000
 
-![공유기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/802769293566616-6fcb4749-2813-45ce-a07f-b87f3ccbee86.jpg)
+[![공유기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/802769293566616-6fcb4749-2813-45ce-a07f-b87f3ccbee86.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=327643945&traceid=V0-153&itemId=1048301869&vendorItemId=5512648757)
 
 
 👍 [티피링크 와이파이6 기가 8포트 듀얼밴드 게이밍 유무선공유기, Archer AX6000 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=327643945&traceid=V0-153&itemId=1048301869&vendorItemId=5512648757) 👌 
@@ -197,7 +197,7 @@ pin: true
 
 ## 10. ipTIME 유무선 공유기, AX2004, 1개
 
-![공유기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2022/11/10/11/9/af3adcc0-bd7e-4ced-9fd5-d679fa4e0346.jpg)
+[![공유기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2022/11/10/11/9/af3adcc0-bd7e-4ced-9fd5-d679fa4e0346.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6908191304&traceid=V0-153&itemId=16639602289&vendorItemId=83823818859)
 
 
 👍 [ipTIME 유무선 공유기, AX2004, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6908191304&traceid=V0-153&itemId=16639602289&vendorItemId=83823818859) 👌 

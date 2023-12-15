@@ -31,7 +31,7 @@ pin: true
 
 ## 1. 삼성전자 패밀리 냉동고, 실버, ZRS25LSLH
 
-![냉동고 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3667273642220529-b072025d-1ff2-45e8-9e34-511912b376d3.jpg)
+[![냉동고 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3667273642220529-b072025d-1ff2-45e8-9e34-511912b376d3.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=178659832&traceid=V0-153&itemId=511496100&vendorItemId=4314073697)
 
 
 👍 [삼성전자 패밀리 냉동고, 실버, ZRS25LSLH <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=178659832&traceid=V0-153&itemId=511496100&vendorItemId=4314073697) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. 캐리어 KRZT-099ABPWO 2023년 최신상 미니(소형) 냉동고 가정용 업소용 다목적 1도어 96L 제품보유 택배배송 자가설치
 
-![냉동고 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/efe3/a62826bd4a0e415e53b5aa316cd3c832dbb421886aaead1631c6762b27a7.jpg)
+[![냉동고 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/efe3/a62826bd4a0e415e53b5aa316cd3c832dbb421886aaead1631c6762b27a7.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7608395988&traceid=V0-153&itemId=20144044863&vendorItemId=87052022123)
 
 
 👍 [캐리어 KRZT-099ABPWO 2023년 최신상 미니(소형) 냉동고 가정용 업소용 다목적 1도어 96L 제품보유 택배배송 자가설치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7608395988&traceid=V0-153&itemId=20144044863&vendorItemId=87052022123) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. LG전자 냉동고 200L 방문설치, A202S, 퓨어
 
-![냉동고 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/fdf0/ba8c15ece9e45c7b3df3cbefa912525d8021fa5de38e0ce1b25b4e9e2c81.jpg)
+[![냉동고 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/fdf0/ba8c15ece9e45c7b3df3cbefa912525d8021fa5de38e0ce1b25b4e9e2c81.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7141791585&traceid=V0-153&itemId=17932850757&vendorItemId=87174507291)
 
 
 👍 [LG전자 냉동고 200L 방문설치, A202S, 퓨어 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7141791585&traceid=V0-153&itemId=17932850757&vendorItemId=87174507291) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. LG전자 냉동고 방문설치, A202W, 슈퍼화이트
 
-![냉동고 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2022/10/21/14/6/0f786a55-711b-44ce-85c3-25e2e8a14c6c.png)
+[![냉동고 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2022/10/21/14/6/0f786a55-711b-44ce-85c3-25e2e8a14c6c.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7141791585&traceid=V0-153&itemId=16370308249&vendorItemId=83561832518)
 
 
 👍 [LG전자 냉동고 방문설치, A202W, 슈퍼화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7141791585&traceid=V0-153&itemId=16370308249&vendorItemId=83561832518) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. 캐리어 KRFT-083ABPWO 2023년 최신상 미니(소형) 일반냉장고 저소음 2도어 83L 제품보유 당일발송 자가설치, 화이트
 
-![냉동고 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7f48/c8ea9f42c191cc45b647894da32adb281c573cb4af6a724c259b0705d70c.jpg)
+[![냉동고 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7f48/c8ea9f42c191cc45b647894da32adb281c573cb4af6a724c259b0705d70c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7608364831&traceid=V0-153&itemId=20143864659&vendorItemId=87052015528)
 
 
 👍 [캐리어 KRFT-083ABPWO 2023년 최신상 미니(소형) 일반냉장고 저소음 2도어 83L 제품보유 당일발송 자가설치, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7608364831&traceid=V0-153&itemId=20143864659&vendorItemId=87052015528) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. 루컴즈 일반형 냉장고 소형 157L 방문설치, 그레이, R160M2-G
 
-![냉동고 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1116204808741145-8c530854-0729-4236-a790-c45202ecac8e.jpg)
+[![냉동고 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1116204808741145-8c530854-0729-4236-a790-c45202ecac8e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6497397386&traceid=V0-153&itemId=14289629167&vendorItemId=81534557827)
 
 
 👍 [루컴즈 일반형 냉장고 소형 157L 방문설치, 그레이, R160M2-G <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6497397386&traceid=V0-153&itemId=14289629167&vendorItemId=81534557827) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. LG전자 냉동고, 샤인, A320S
 
-![냉동고 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/aeb1/1a3c6d320ea9cae17a6800edc25ba3d3ebab0d5b5d1e1676ee5c2eded8d6.jpg)
+[![냉동고 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/aeb1/1a3c6d320ea9cae17a6800edc25ba3d3ebab0d5b5d1e1676ee5c2eded8d6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5379208287&traceid=V0-153&itemId=7986630774&vendorItemId=81293943277)
 
 
 👍 [LG전자 냉동고, 샤인, A320S <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5379208287&traceid=V0-153&itemId=7986630774&vendorItemId=81293943277) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. 캐리어 클라윈드 스탠드형 냉동고 380L 방문설치, 실버메탈, CFT-N380MSM
 
-![냉동고 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2022/07/29/9/7/8b27b841-6205-4867-97fc-d55321d7ae71.jpg)
+[![냉동고 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2022/07/29/9/7/8b27b841-6205-4867-97fc-d55321d7ae71.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6675317186&traceid=V0-153&itemId=15373633192&vendorItemId=82593737670)
 
 
 👍 [캐리어 클라윈드 스탠드형 냉동고 380L 방문설치, 실버메탈, CFT-N380MSM <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6675317186&traceid=V0-153&itemId=15373633192&vendorItemId=82593737670) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. 삼성전자 비스포크 4도어 냉장고 메탈 870L 방문설치, 매트 크리미 베이지, RF84C926A4E
 
-![냉동고 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/bq02d4dv/c347a338b46945478693a0f2764700c0.jpg)
+[![냉동고 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/bq02d4dv/c347a338b46945478693a0f2764700c0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7290503782&traceid=V0-153&itemId=18632424406&vendorItemId=85767697672)
 
 
 👍 [삼성전자 비스포크 4도어 냉장고 메탈 870L 방문설치, 매트 크리미 베이지, RF84C926A4E <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7290503782&traceid=V0-153&itemId=18632424406&vendorItemId=85767697672) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. 미디어 냉동고 방문설치, 화이트, CF-W201L
 
-![냉동고 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3131169763335419-09f1888f-ebd8-476e-8286-da0ef358c686.jpg)
+[![냉동고 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3131169763335419-09f1888f-ebd8-476e-8286-da0ef358c686.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6622596876&traceid=V0-153&itemId=15063584840&vendorItemId=70530917971)
 
 
 👍 [미디어 냉동고 방문설치, 화이트, CF-W201L <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6622596876&traceid=V0-153&itemId=15063584840&vendorItemId=70530917971) 👌 

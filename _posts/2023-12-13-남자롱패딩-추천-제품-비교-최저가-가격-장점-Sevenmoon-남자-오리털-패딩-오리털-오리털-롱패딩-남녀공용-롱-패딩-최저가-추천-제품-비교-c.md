@@ -30,7 +30,7 @@ pin: true
 
 ## 1. Sevenmoon 남자 오리털 패딩 오리털 오리털 롱패딩 남녀공용 롱 패딩
 
-![남자롱패딩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/74ae/130be713ef293ceb4125120a68c840687c0433a7b36a7da0fbe2c343c16a.jpg)
+[![남자롱패딩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/74ae/130be713ef293ceb4125120a68c840687c0433a7b36a7da0fbe2c343c16a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7578629207&traceid=V0-153&itemId=20001392690&vendorItemId=87689262023)
 
 
 👍 [Sevenmoon 남자 오리털 패딩 오리털 오리털 롱패딩 남녀공용 롱 패딩 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7578629207&traceid=V0-153&itemId=20001392690&vendorItemId=87689262023) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. 남녀 롱패딩 점퍼 / 패딩/ 넉넉한 충전재 / 충분한 기장/ 에스티패딩/ 바이얼리(BYERLY)
 
-![남자롱패딩 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0065/33d3915bbfb071b01de0f60d4771e1324d8bd15a63d1a54a5aecec7fdd02.jpg)
+[![남자롱패딩 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0065/33d3915bbfb071b01de0f60d4771e1324d8bd15a63d1a54a5aecec7fdd02.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6944747380&traceid=V0-153&itemId=16852678776&vendorItemId=84033776716)
 
 
 👍 [남녀 롱패딩 점퍼 / 패딩/ 넉넉한 충전재 / 충분한 기장/ 에스티패딩/ 바이얼리(BYERLY) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6944747380&traceid=V0-153&itemId=16852678776&vendorItemId=84033776716) 👌 
@@ -68,7 +68,7 @@ pin: true
 
 ## 3. 겨울 SH 웰론 7부 롱패딩 SHD9074
 
-![남자롱패딩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/69a3/2856f851fdae9139a01f13f9f460c2ea9ff98f5a8d9ceaea42c656b5c7e8.jpg)
+[![남자롱패딩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/69a3/2856f851fdae9139a01f13f9f460c2ea9ff98f5a8d9ceaea42c656b5c7e8.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=324905765&traceid=V0-153&itemId=1040327213&vendorItemId=5497498876)
 
 
 👍 [겨울 SH 웰론 7부 롱패딩 SHD9074 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=324905765&traceid=V0-153&itemId=1040327213&vendorItemId=5497498876) 👌 
@@ -87,7 +87,7 @@ pin: true
 
 ## 4. 구스다운 남자 겨울 롱 패딩자켓 점퍼 오리털
 
-![남자롱패딩 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e156/573e8bcf7e050e2d3c504ef48ea2a5226f9f6132aa8f52bfa21f0c00e3e9.jpg)
+[![남자롱패딩 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e156/573e8bcf7e050e2d3c504ef48ea2a5226f9f6132aa8f52bfa21f0c00e3e9.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6854374187&traceid=V0-153&itemId=16340547811&vendorItemId=83532410375)
 
 
 👍 [구스다운 남자 겨울 롱 패딩자켓 점퍼 오리털 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6854374187&traceid=V0-153&itemId=16340547811&vendorItemId=83532410375) 👌 
@@ -106,7 +106,7 @@ pin: true
 
 ## 5. 블루포스 남성용 레코넛 롱패딩 점퍼
 
-![남자롱패딩 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/762d/7c7ddf6e58cb391045b64674edd72dae6dad563d02d1885df3bdbbdfd2ce.jpg)
+[![남자롱패딩 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/762d/7c7ddf6e58cb391045b64674edd72dae6dad563d02d1885df3bdbbdfd2ce.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6897228816&traceid=V0-153&itemId=16577024537&vendorItemId=87149192606)
 
 
 👍 [블루포스 남성용 레코넛 롱패딩 점퍼 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6897228816&traceid=V0-153&itemId=16577024537&vendorItemId=87149192606) 👌 
@@ -125,7 +125,7 @@ pin: true
 
 ## 6. 곽씨네슈퍼 겨울 항공 점퍼 블루종
 
-![남자롱패딩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3fc0/5350964e0bafa83bc610e1c92b889f3332979ba6a9bf37f084c266e59f17.jpg)
+[![남자롱패딩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/3fc0/5350964e0bafa83bc610e1c92b889f3332979ba6a9bf37f084c266e59f17.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6909412403&traceid=V0-153&itemId=16646048793&vendorItemId=83830113466)
 
 
 👍 [곽씨네슈퍼 겨울 항공 점퍼 블루종 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6909412403&traceid=V0-153&itemId=16646048793&vendorItemId=83830113466) 👌 
@@ -144,7 +144,7 @@ pin: true
 
 ## 7. 컬럼비아 컬럼비아 유니 컴포트 롱패딩 자켓 (C44-YMD311)
 
-![남자롱패딩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/103b/9ee91f50ada00668908bf3578a2a8fe2ef6eb857494ac22f202ec0b61053.jpg)
+[![남자롱패딩 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/103b/9ee91f50ada00668908bf3578a2a8fe2ef6eb857494ac22f202ec0b61053.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7650556616&traceid=V0-153&itemId=20354975014&vendorItemId=87439294919)
 
 
 👍 [컬럼비아 컬럼비아 유니 컴포트 롱패딩 자켓 (C44-YMD311) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7650556616&traceid=V0-153&itemId=20354975014&vendorItemId=87439294919) 👌 
@@ -163,7 +163,7 @@ pin: true
 
 ## 8. 블랙야크 공용 겨울 방풍 롱 패딩 B맥스벤치알파 다운 자켓 1BYPAW3901 23년 동계 긴기장 덕다운 아웃도어 빅사이즈 점퍼
 
-![남자롱패딩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/8bbe/7be26798d944bc9defd53824afa58b302d6cf6d8f2893d31b26521dff5fa.jpg)
+[![남자롱패딩 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/8bbe/7be26798d944bc9defd53824afa58b302d6cf6d8f2893d31b26521dff5fa.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7605364764&traceid=V0-153&itemId=20129041878&vendorItemId=87245873576)
 
 
 👍 [블랙야크 공용 겨울 방풍 롱 패딩 B맥스벤치알파 다운 자켓 1BYPAW3901 23년 동계 긴기장 덕다운 아웃도어 빅사이즈 점퍼 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7605364764&traceid=V0-153&itemId=20129041878&vendorItemId=87245873576) 👌 
@@ -182,7 +182,7 @@ pin: true
 
 ## 9. 바이얼리 오버핏 스트릿 캐주얼 롱패딩 / 빅사이즈
 
-![남자롱패딩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/8c4a/ff2ecdf63dd2f65633fc25205cca9a0ad4efaf3503ddc264ca8c045885ce.jpg)
+[![남자롱패딩 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/8c4a/ff2ecdf63dd2f65633fc25205cca9a0ad4efaf3503ddc264ca8c045885ce.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7576637890&traceid=V0-153&itemId=19992082135&vendorItemId=87122090337)
 
 
 👍 [바이얼리 오버핏 스트릿 캐주얼 롱패딩 / 빅사이즈 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7576637890&traceid=V0-153&itemId=19992082135&vendorItemId=87122090337) 👌 
@@ -201,7 +201,7 @@ pin: true
 
 ## 10. ANYOU 남녀 롱패딩 점퍼 오리털 겨울 블랙 골드 롱 커플 도톰 패딩 남여공용
 
-![남자롱패딩 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e6d4/714765bbd599ce16fc6d8de495fa9e95cbb3a2c72d46e652f4a78dc66a98.jpg)
+[![남자롱패딩 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e6d4/714765bbd599ce16fc6d8de495fa9e95cbb3a2c72d46e652f4a78dc66a98.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7657804165&traceid=V0-153&itemId=20393128340&vendorItemId=87586926641)
 
 
 👍 [ANYOU 남녀 롱패딩 점퍼 오리털 겨울 블랙 골드 롱 커플 도톰 패딩 남여공용 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7657804165&traceid=V0-153&itemId=20393128340&vendorItemId=87586926641) 👌 

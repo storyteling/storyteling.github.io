@@ -35,7 +35,7 @@ SSD는 HDD와 달리 움직이는 부품이 없기 때문에 크기가 작고 �
 
 ## 1. 타이탄 프로 SSD TITAN 128XP, 128GB
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2018/01/29/11/0/81d22799-f303-48be-b412-ed0e5d01b9c6.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2018/01/29/11/0/81d22799-f303-48be-b412-ed0e5d01b9c6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=63171192&traceid=V0-153&itemId=215197459&vendorItemId=3518019431)
 
 
 👍 [타이탄 프로 SSD TITAN 128XP, 128GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=63171192&traceid=V0-153&itemId=215197459&vendorItemId=3518019431) 👌 
@@ -53,7 +53,7 @@ SSD는 HDD와 달리 움직이는 부품이 없기 때문에 크기가 작고 �
 
 ## 2. 기가바이트 SSD, GIGABYTE SSD 240GB, 240GB
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2019/12/18/17/6/bde13afd-18a7-475c-aa10-919ec39d9715.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2019/12/18/17/6/bde13afd-18a7-475c-aa10-919ec39d9715.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=2058262205&vendorItemId=70057529285)
 
 
 👍 [기가바이트 SSD, GIGABYTE SSD 240GB, 240GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1101107400&traceid=V0-153&itemId=2058262205&vendorItemId=70057529285) 👌 
@@ -71,7 +71,7 @@ SSD는 HDD와 달리 움직이는 부품이 없기 때문에 크기가 작고 �
 
 ## 3. SK하이닉스 GOLD P31 NVMe SSD, HFS500GDE9X0733, 500GB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5547319295952285-5c3f4fa7-5879-4260-bfd7-683749b6d4b4.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5547319295952285-5c3f4fa7-5879-4260-bfd7-683749b6d4b4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS500GDE9X0733, 500GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470) 👌 
@@ -89,7 +89,7 @@ SSD는 HDD와 달리 움직이는 부품이 없기 때문에 크기가 작고 �
 
 ## 4. SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457) 👌 
@@ -107,7 +107,7 @@ SSD는 HDD와 달리 움직이는 부품이 없기 때문에 크기가 작고 �
 
 ## 5. M.2 SATA PCI-Express SSD 변환 아답터 카드 데스크탑용 NVMe NGFF 겸용 LS-PCIE-M2SATAN
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1052095564379969-83ffebd9-3696-4721-b5d5-1d1af3124f8b.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1052095564379969-83ffebd9-3696-4721-b5d5-1d1af3124f8b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5240021570&traceid=V0-153&itemId=7399007603&vendorItemId=74690028855)
 
 
 👍 [M.2 SATA PCI-Express SSD 변환 아답터 카드 데스크탑용 NVMe NGFF 겸용 LS-PCIE-M2SATAN <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5240021570&traceid=V0-153&itemId=7399007603&vendorItemId=74690028855) 👌 
@@ -125,7 +125,7 @@ SSD는 HDD와 달리 움직이는 부품이 없기 때문에 크기가 작고 �
 
 ## 6. 아모란나 NVMe 초고속 SSD 40Gbps 외장하드 케이스 USB4 썬더볼트4
 
-![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d467/a8a4a205a1d719531efe0825859816145db931dc0a5c27eed74b432581ff.jpg)
+[![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d467/a8a4a205a1d719531efe0825859816145db931dc0a5c27eed74b432581ff.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692426328&traceid=V0-153&itemId=20574317831&vendorItemId=87649587077)
 
 
 👍 [아모란나 NVMe 초고속 SSD 40Gbps 외장하드 케이스 USB4 썬더볼트4 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692426328&traceid=V0-153&itemId=20574317831&vendorItemId=87649587077) 👌 
@@ -143,7 +143,7 @@ SSD는 HDD와 달리 움직이는 부품이 없기 때문에 크기가 작고 �
 
 ## 7. 마이크론 Crucial SSD, MX500, 500GB
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/product/image/vendoritem/2018/11/02/3775286726/d5d25003-a1cd-45c7-a708-60debdee7acb.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/product/image/vendoritem/2018/11/02/3775286726/d5d25003-a1cd-45c7-a708-60debdee7acb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=104047591&traceid=V0-153&itemId=19281675499&vendorItemId=3775286726)
 
 
 👍 [마이크론 Crucial SSD, MX500, 500GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=104047591&traceid=V0-153&itemId=19281675499&vendorItemId=3775286726) 👌 
@@ -161,7 +161,7 @@ SSD는 HDD와 달리 움직이는 부품이 없기 때문에 크기가 작고 �
 
 ## 8. 삼성전자 870 EVO SSD, 1TB, MZ-77E1T0
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d6e1/47bb997760ab44f380b372a963aca927969031e220976b13e51880f24dec.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d6e1/47bb997760ab44f380b372a963aca927969031e220976b13e51880f24dec.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76204513410)
 
 
 👍 [삼성전자 870 EVO SSD, 1TB, MZ-77E1T0 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76204513410) 👌 
@@ -179,7 +179,7 @@ SSD는 HDD와 달리 움직이는 부품이 없기 때문에 크기가 작고 �
 
 ## 9. 엠비에프 SATA to USB 컨버터 SSD 외장하드 연결 케이블 MBF-U3SATA-BK, 1개, 25cm
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/z3lr4oku/f9a8c8d88d864401874a70b9de5abcba.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/z3lr4oku/f9a8c8d88d864401874a70b9de5abcba.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6228583962&traceid=V0-153&itemId=12504894605&vendorItemId=79773474563)
 
 
 👍 [엠비에프 SATA to USB 컨버터 SSD 외장하드 연결 케이블 MBF-U3SATA-BK, 1개, 25cm <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6228583962&traceid=V0-153&itemId=12504894605&vendorItemId=79773474563) 👌 
@@ -197,7 +197,7 @@ SSD는 HDD와 달리 움직이는 부품이 없기 때문에 크기가 작고 �
 
 ## 10. 삼성전자 870 EVO SATA SSD, 500GB, MZ-77E500B/KR
 
-![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4c39/498043257b06e0000d78fa1fd07fa45aaa8c9af1cf7d186b9cfdcf26216c.jpg)
+[![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4c39/498043257b06e0000d78fa1fd07fa45aaa8c9af1cf7d186b9cfdcf26216c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=75697199773)
 
 
 👍 [삼성전자 870 EVO SATA SSD, 500GB, MZ-77E500B/KR <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=75697199773) 👌 

@@ -22,7 +22,7 @@ pin: true
 
 ## 1. polo sport 폴로 스포츠 브이넥 니트 여성가디건 신원
 
-![로엠 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/39e4/4b9f8880ffa60b2d05488a408d6189ac1dbf606677f016334c5b28976ba0.jpg)
+[![로엠 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/39e4/4b9f8880ffa60b2d05488a408d6189ac1dbf606677f016334c5b28976ba0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7643845450&traceid=V0-153&itemId=20318911830&vendorItemId=87404378533)
 
 
 👍 [polo sport 폴로 스포츠 브이넥 니트 여성가디건 신원 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7643845450&traceid=V0-153&itemId=20318911830&vendorItemId=87404378533) 👌 
@@ -40,7 +40,7 @@ pin: true
 
 ## 2. 로엠 롱기장 트렌치코트
 
-![로엠 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/ok79jxbr/cc0ec02e4f424da096e133c1e52cb876.jpg)
+[![로엠 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/ok79jxbr/cc0ec02e4f424da096e133c1e52cb876.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5172377803&traceid=V0-153&itemId=7139081767&vendorItemId=74337647339)
 
 
 👍 [로엠 롱기장 트렌치코트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5172377803&traceid=V0-153&itemId=7139081767&vendorItemId=74337647339) 👌 
@@ -58,7 +58,7 @@ pin: true
 
 ## 3. 로엠 여성용 테일러드 자켓
 
-![로엠 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/5dlodtms/c6ecbcde5ba744cfbeb02125d758e41c.jpg)
+[![로엠 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/5dlodtms/c6ecbcde5ba744cfbeb02125d758e41c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7515366767&traceid=V0-153&itemId=19700655660&vendorItemId=86805389399)
 
 
 👍 [로엠 여성용 테일러드 자켓 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7515366767&traceid=V0-153&itemId=19700655660&vendorItemId=86805389399) 👌 
@@ -76,7 +76,7 @@ pin: true
 
 ## 4. 로엠 여성용 프리미엄 롱 부츠컷 데님 바지
 
-![로엠 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/q7iu5xuw/93202613a9f8499fac39f28fcacd3494.jpg)
+[![로엠 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/q7iu5xuw/93202613a9f8499fac39f28fcacd3494.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7605608582&traceid=V0-153&itemId=20130220595&vendorItemId=87223742627)
 
 
 👍 [로엠 여성용 프리미엄 롱 부츠컷 데님 바지 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7605608582&traceid=V0-153&itemId=20130220595&vendorItemId=87223742627) 👌 
@@ -94,7 +94,7 @@ pin: true
 
 ## 5. 1/1+1 따뜻한 보온 플리스 코트 양털자켓 겨울 아우터 운동용자켓 다용도 플리스
 
-![로엠 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9130/0bf59019519630dde07f53f57b6d99d08447abe8a00d73436133019fc186.jpg)
+[![로엠 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9130/0bf59019519630dde07f53f57b6d99d08447abe8a00d73436133019fc186.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7694926355&traceid=V0-153&itemId=20586791855&vendorItemId=87661721030)
 
 
 👍 [1/1+1 따뜻한 보온 플리스 코트 양털자켓 겨울 아우터 운동용자켓 다용도 플리스 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7694926355&traceid=V0-153&itemId=20586791855&vendorItemId=87661721030) 👌 
@@ -112,7 +112,7 @@ pin: true
 
 ## 6. 에이앤디 여성 따뜻한 소프트 웜 기모 7cm 와이드 밴딩 팬츠
 
-![로엠 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2b33/05c5676c3e05494933cb64ef8ed97706e06f14d6775d774c1cc5009f6c3c.jpg)
+[![로엠 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2b33/05c5676c3e05494933cb64ef8ed97706e06f14d6775d774c1cc5009f6c3c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7677479998&traceid=V0-153&itemId=20497478378&vendorItemId=84595431320)
 
 
 👍 [에이앤디 여성 따뜻한 소프트 웜 기모 7cm 와이드 밴딩 팬츠 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7677479998&traceid=V0-153&itemId=20497478378&vendorItemId=84595431320) 👌 
@@ -130,7 +130,7 @@ pin: true
 
 ## 7. 로엠 트위드 배색 2in1 원피스
 
-![로엠 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/08/15/14/9/9192b449-e1ba-41d4-ab8f-5cc2ff6ed8fc.jpg)
+[![로엠 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/08/15/14/9/9192b449-e1ba-41d4-ab8f-5cc2ff6ed8fc.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7532371504&traceid=V0-153&itemId=19780819320&vendorItemId=86883674973)
 
 
 👍 [로엠 트위드 배색 2in1 원피스 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7532371504&traceid=V0-153&itemId=19780819320&vendorItemId=86883674973) 👌 
@@ -148,7 +148,7 @@ pin: true
 
 ## 8. 로엠 여성용 언발카라 스웨터
 
-![로엠 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/gadpx98m/618bc7d822d14ecbb96781d056440224.jpg)
+[![로엠 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/gadpx98m/618bc7d822d14ecbb96781d056440224.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7600079475&traceid=V0-153&itemId=20102622196&vendorItemId=87197352901)
 
 
 👍 [로엠 여성용 언발카라 스웨터 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7600079475&traceid=V0-153&itemId=20102622196&vendorItemId=87197352901) 👌 
@@ -166,7 +166,7 @@ pin: true
 
 ## 9. 여성 봄가을 티셔츠 터틀넥 셔츠 섹시 편하고 신축성 좋은 원단 6035
 
-![로엠 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ce97/3f05ee9343f24b9e5a6ffad9433734cbcb35c58a20912aa97bf4e16993f4.jpg)
+[![로엠 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ce97/3f05ee9343f24b9e5a6ffad9433734cbcb35c58a20912aa97bf4e16993f4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7558499046&traceid=V0-153&itemId=19907984044&vendorItemId=87007958343)
 
 
 👍 [여성 봄가을 티셔츠 터틀넥 셔츠 섹시 편하고 신축성 좋은 원단 6035 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7558499046&traceid=V0-153&itemId=19907984044&vendorItemId=87007958343) 👌 
@@ -184,7 +184,7 @@ pin: true
 
 ## 10. 로엠 자켓형 2in1 원피스
 
-![로엠 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/09/13/12/1/4768af99-79a0-41b1-8539-1f2d4c37e2d2.jpg)
+[![로엠 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/09/13/12/1/4768af99-79a0-41b1-8539-1f2d4c37e2d2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7581068700&traceid=V0-153&itemId=20012497647&vendorItemId=87173318178)
 
 
 👍 [로엠 자켓형 2in1 원피스 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7581068700&traceid=V0-153&itemId=20012497647&vendorItemId=87173318178) 👌 

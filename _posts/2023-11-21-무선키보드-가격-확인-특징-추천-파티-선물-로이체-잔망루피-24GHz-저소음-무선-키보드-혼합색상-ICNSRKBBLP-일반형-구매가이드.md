@@ -22,7 +22,7 @@ pin: true
 
 ## 1. 로이체 잔망루피 2.4GHz 저소음 무선 키보드, 혼합색상, ICNS-RKB-B-LP, 일반형
 
-![무선키보드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/07/17/13/7/57553b22-1aa4-48aa-9776-657e84d24d21.jpg)
+[![무선키보드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/07/17/13/7/57553b22-1aa4-48aa-9776-657e84d24d21.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7470697406&traceid=V0-153&itemId=19493177023&vendorItemId=86602825636)
 
 
 👍 [로이체 잔망루피 2.4GHz 저소음 무선 키보드, 혼합색상, ICNS-RKB-B-LP, 일반형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7470697406&traceid=V0-153&itemId=19493177023&vendorItemId=86602825636) 👌 
@@ -40,7 +40,7 @@ pin: true
 
 ## 2. 로지텍 무선키보드 마우스 세트, 혼합 색상, 1개
 
-![무선키보드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/15181305125893-7fa00276-2178-42c6-ac25-c946b83da551.jpg)
+[![무선키보드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/15181305125893-7fa00276-2178-42c6-ac25-c946b83da551.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5561174812&traceid=V0-153&itemId=8821612417&vendorItemId=3180494980)
 
 
 👍 [로지텍 무선키보드 마우스 세트, 혼합 색상, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5561174812&traceid=V0-153&itemId=8821612417&vendorItemId=3180494980) 👌 
@@ -58,7 +58,7 @@ pin: true
 
 ## 3. 큐센 멤브레인 무선 키보드, 블랙, K1000, 일반형
 
-![무선키보드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/lsjpwkwb/19ea5ec758ca4864ad0526158d9e8486.jpg)
+[![무선키보드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/lsjpwkwb/19ea5ec758ca4864ad0526158d9e8486.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111860822&traceid=V0-153&itemId=11524026356&vendorItemId=78799122133)
 
 
 👍 [큐센 멤브레인 무선 키보드, 블랙, K1000, 일반형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111860822&traceid=V0-153&itemId=11524026356&vendorItemId=78799122133) 👌 
@@ -76,7 +76,7 @@ pin: true
 
 ## 4. 로지텍 MK295 무소음 무선 키보드 마우스세트, 블랙
 
-![무선키보드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2020/11/11/14/6/a6e427e4-a244-4910-8cd6-a6656b1b4b86.jpg)
+[![무선키보드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2020/11/11/14/6/a6e427e4-a244-4910-8cd6-a6656b1b4b86.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4829338756&traceid=V0-153&itemId=6229002743&vendorItemId=72324802340)
 
 
 👍 [로지텍 MK295 무소음 무선 키보드 마우스세트, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4829338756&traceid=V0-153&itemId=6229002743&vendorItemId=72324802340) 👌 
@@ -94,7 +94,7 @@ pin: true
 
 ## 5. 레드빈 간단 무선 키보드 마우스 세트, 버터옐로우, CP-A25C, 일반형
 
-![무선키보드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5377267699667816-edfe702d-e039-4c3f-8bbf-926daa664ac2.jpg)
+[![무선키보드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5377267699667816-edfe702d-e039-4c3f-8bbf-926daa664ac2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5716608749&traceid=V0-153&itemId=18707483879&vendorItemId=85840768526)
 
 
 👍 [레드빈 간단 무선 키보드 마우스 세트, 버터옐로우, CP-A25C, 일반형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5716608749&traceid=V0-153&itemId=18707483879&vendorItemId=85840768526) 👌 
@@ -112,7 +112,7 @@ pin: true
 
 ## 6. 로이체 잔망루피 멀티페어링 크래들 블루투스 무선 키보드, 일반형, 혼합색상, ICNS-TKB-A-LP(키보드), SQ-TKB-RCV1(리시버)
 
-![무선키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5048212497046806-8946f246-39c6-4b04-be20-be3968ccacc9.jpg)
+[![무선키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5048212497046806-8946f246-39c6-4b04-be20-be3968ccacc9.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6484679640&traceid=V0-153&itemId=14210292805&vendorItemId=81455759674)
 
 
 👍 [로이체 잔망루피 멀티페어링 크래들 블루투스 무선 키보드, 일반형, 혼합색상, ICNS-TKB-A-LP(키보드), SQ-TKB-RCV1(리시버) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6484679640&traceid=V0-153&itemId=14210292805&vendorItemId=81455759674) 👌 
@@ -130,7 +130,7 @@ pin: true
 
 ## 7. 큐센 멤브레인 무선 키보드, 화이트, K1000, 일반형
 
-![무선키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3048106586324444-e7c12a4e-afb0-46fd-994c-673de53988af.jpg)
+[![무선키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3048106586324444-e7c12a4e-afb0-46fd-994c-673de53988af.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6208905666&traceid=V0-153&itemId=12365578906&vendorItemId=79635408184)
 
 
 👍 [큐센 멤브레인 무선 키보드, 화이트, K1000, 일반형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6208905666&traceid=V0-153&itemId=12365578906&vendorItemId=79635408184) 👌 
@@ -148,7 +148,7 @@ pin: true
 
 ## 8. 코시 베이직 블루투스 키보드, KB1352BT, 실버, 텐키리스
 
-![무선키보드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1668681132274920-e6059d4d-4814-41ad-a11a-04ee52de8a95.jpg)
+[![무선키보드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1668681132274920-e6059d4d-4814-41ad-a11a-04ee52de8a95.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1426742&traceid=V0-153&itemId=6198698&vendorItemId=3008010221)
 
 
 👍 [코시 베이직 블루투스 키보드, KB1352BT, 실버, 텐키리스 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1426742&traceid=V0-153&itemId=6198698&vendorItemId=3008010221) 👌 
@@ -166,7 +166,7 @@ pin: true
 
 ## 9. 라이프썸 슬림 블루투스 키보드(LFS-HA39)+전용 키스킨 3대기기 멀티페어링 저소음 숫자패드 충전형 아이패드 태블릿 키보드, 샌드
 
-![무선키보드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/bfc9/d383727be5e4c3f7315f47c66ace2153d2a56c967b2a2bbd9064d88245e6.jpg)
+[![무선키보드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/bfc9/d383727be5e4c3f7315f47c66ace2153d2a56c967b2a2bbd9064d88245e6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5123646030&traceid=V0-153&itemId=15117993974&vendorItemId=82339763497)
 
 
 👍 [라이프썸 슬림 블루투스 키보드(LFS-HA39)+전용 키스킨 3대기기 멀티페어링 저소음 숫자패드 충전형 아이패드 태블릿 키보드, 샌드 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5123646030&traceid=V0-153&itemId=15117993974&vendorItemId=82339763497) 👌 
@@ -184,7 +184,7 @@ pin: true
 
 ## 10. 로지텍 무선 키보드 K270, Y-R0015, 혼합색상, 일반형
 
-![무선키보드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/product/image/vendoritem/2019/03/06/3466783988/34c3c54a-c3d6-46fa-ab96-a4460ad3fa29.jpg)
+[![무선키보드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/product/image/vendoritem/2019/03/06/3466783988/34c3c54a-c3d6-46fa-ab96-a4460ad3fa29.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=56643675&traceid=V0-153&itemId=195950222&vendorItemId=3466783988)
 
 
 👍 [로지텍 무선 키보드 K270, Y-R0015, 혼합색상, 일반형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=56643675&traceid=V0-153&itemId=195950222&vendorItemId=3466783988) 👌 
